@@ -1,0 +1,445 @@
+---
+title: "Heaven and Hell"
+subtitle: "天国と地獄"
+date: 2023-02-26
+categories: 
+  - "japan-one"
+---
+
+> If it were easy it wouldn’t be worth doing. It is the otherness that is the challenge. Making up someone other than yourself. Making up a world for him to move in.
+> 
+> J.M. Coatzee, “Elizabeth Costello”
+
+## The Merits and Demerits of Japan
+
+Literally everything about Japan is so… efficient. I can’t think of one thing that isn’t done the way it should be. Everything is organised, perfected, and flows really well. I am just astounded by the combination of smart design and willingness of the people here to cooperate with guidelines and be considerate of others.
+
+It’s really ironic that I come from Israel, which is known as a “start-up nation”, and is considered an engineer’s paradise. The tech bubble industry in Israel is insane. The number of engineers there is, well, absurd. Yet for some reason, it feels like the complete opposite of Japan. There is nothing in Israel that is designed and operates as well as it should be. Israeli people think the public space is their own personal backyard.
+
+I mean, Israel and Japan and kind of… polar opposites. I can go on and on about how the people differ in their attitudes and behaviours, but even the languages themselves are completely different. (Which might explain the behaviour) You don’t hear Japanese people use the word “no”. Japanese is indirect, contextual, polite, avoidant of conflicts. You have to read between the lines to understand what a person wants, they’ll never just spell it out for you. Maybe it’s because verbs come last – you have to wait till someone finishes their sentence to understand what they’re trying to say, ergo be patient – and also because pronouns and tense and all sort of helpful information tends to be vague or altogether omitted, so you have to figure it out on your own.
+
+Hebrew, on the other hand, is straightforward to the point of saying it all to your face. It saves a lot of time and effort (and I appreciate the directness and ease of communication), but it can border on rude.
+
+I guess it all depends on the person. And the thing is, Israeli people are probably the one population I least vibe with.
+
+I know Japan is far from perfect. I am well aware of the ugliness it hides. If it had its own commandments, “THOU SHALT MAINTAIN A CLEAN VENEER” “THOU SHALT AVOID CONFLICT AND BREAKAGE OF NORMS” “THOU SHALT CONFORM TO STRICT GENDER ROLES AND CAPITALIST IDEOLOGY” “THOU SHALT SWEEP ALL UNDER THE TATAMI” would be strong contenders.
+
+Still, none of these affect me much as a Western tourist. So I can only speak from my own experience.
+
+The thought of going back to Israel in May is so revolting, that I almost feel like Frankenstein, when he created the Monster and immediately fled his own home out of sheer terror. Except, unlike Frankenstein, I didn’t make Israel what it is today. I never asked to be born there. But I guess life doesn’t ask you for your opinion first. It just throws things at you. You either endure them, or lose the will to leave your bed in the morning.
+
+**Updated list of places I never want to set foot in:**
+
+- Sendai
+
+- Israel
+
+Right now, everything is peachy in this well-designed country full of well-mannered people, so I think I’ll end this segment (yet another “God, this turned grim” one) on a lighter note. This was it. Peace out.
+
+## 23 February 2023
+
+- 10:20 arrival at Nagoya, 10:40-10:55 ferry to Noseki station bus, 11:00-11:25 Noseki to Nagoya station train, 11:50-15:00 Nagoya to Kanazawa limited express train (covered by JR pass)
+
+- Kanazawa Forus mall
+
+- Dinner at Morimori conveyor belt sushi
+
+Last night, after watching the ocean, I lay in bed and struggled to fall asleep.
+
+I always take forever to doze off; ever since puberty. My time in Japan, however, has been so busy and hectic, that I fell asleep on most days faster than I ever had.
+
+The epileptic berth wasn’t to blame. More bothersome was the bed being a little too short, the lights remaining bright even at nighttime, and the blanket. I’d found the capsule hotel’s blanket rather flimsy, but the ship’s was barely a thin strip of fabric.
+
+I am very sensitive to light at night, but I don’t know what was worse – too strong a light, or too dark an ocean.
+
+Then my mind drifted to the people I had hung out with during my trip. I thought of the guy from the train, and how I’d blown my shot at seeing him again.
+
+I’d been experiencing so many things since coming to Japan. Things I’d forgotten all about.
+
+Every day so far, something unexpected happened to me. Even though I’d come prepared with a detailed itinerary, some of it didn’t work out, while activities that hadn’t occurred to me did.
+
+It’s hard to process all that unfolds here, because every day brings with it new activities, people, and places. At least I am documenting it all for years to come.
+
+I hurried to breakfast, once again disappointingly near closing time. The food on the ferry was very underwhelming, and more expensive than the one on land.
+
+Several people had told me that taking a ferry would be silly and nausea-inducing; worthwhile only if you needed a way to move a car with you. But I’d always wanted to try sleeping on a ferry. Plus, this was research for a story I’d been working on for several years now, which takes places on a boat to Antarctica. Crossing the Japanese sea in winter was my only way of coming close to this, at least (hopefully) for the time being.
+
+Thus, like the old school ryokan, I got off the ferry happy I had boarded, and happy it was over.
+
+### Nagoya
+
+The bus from the harbour was full to the brim with passengers from the ship. A retired Japanese person told me that last year, only three people had embarked on the same trip.
+
+I headed straight to Kanazawa from Nagoya station. The city didn’t speak to me at that moment; I didn’t want a Sendai 2.0. Plus, Kanazawa had more things on my list, and Nagoya would happen again in around two weeks.
+
+On the way to Kanazawa, when the train stopped at Morioka, everyone got up and rotated the seats by 180 degrees. Apparently the train would be facing the opposite direction from now on. As someone who’d hailed from a country where trains were slow, infrequent, old, an unreliable, I was shocked.
+
+The road was flat and forest-y, through towns with low, traditional houses. None of the grey skyscrapers from Sendai.
+
+### Kanazawa
+
+Upon exiting Kanazawa Station, I already got the feeling this city would be different. The station was an architectural marvel, with a huge wooden gate at the front. It reminded me of King’s Cross, because it was the first pretty station I’d seen in Japan.
+
+A mere two minutes later, I arrived at my accommodation for the next two days, a cheap 2-star hotel 200m across the station. I spent an entire hour chatting to the staff upon check in. She was the nicest receptionist I’d ever met. Excited to meet an Israeli person for the first time, to see what Hebrew looked like, and to help me plan the perfect itinerary for my time in Kanazawa. She immediately made reservations for me for things I hadn’t known required reservations, checked bus times, made phone calls, etc.
+
+The only downside to this hotel was the lack of a bidet. I’d forgotten what wiping felt like.
+
+The view from my room is the picture from the beginning of this post.
+
+Upon the receptionist’s recommendation, I headed to Forus, a trendy yet upscale mall next to the station. She’d mentioned a conveyor belt sushi place on the dining floor, saying Kanazawa was famous for conveyor belt spots, but warned me of a long line.
+
+She wasn’t kidding. Every other restaurant on the floor was nigh empty; it felt like the whole city had come to this one place.
+
+I took a number at 17:35. The line did not go anywhere. I checked out some of the shops; Loft was a stationary and skincare heaven.
+
+At 18:45, the place stopped taking new customers. Last order was until 21:30.
+
+I was ravenous and impatient, having missed lunch due to the long train ride. Finally, at 19:25, my turn had come.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2361-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2365-1024x768.jpeg)
+
+### My First Conveyor Belt Sushi
+
+This was not only my first conveyor belt sushi, but also my first sushi in Japan. It was expensive (twice my budget for a meal), but I gave myself some slack, since I’d had one meal today and a few snacks.
+
+The plates had different colors, indicating the price. I stacked them up in the end, and then the waiter calculated my bill.
+
+After paying at 20:00, I was surprised to see all the shops closing. I keep forgetting Japan tends to close early. And open late. Some places aren’t open before 10:00. Someone told me there are places in Tokyo that open at 11:00.
+
+An unexpected encounter with a Pokémon shop was both tantalising and serendipitous, since it was being closed.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2370-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2371-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2372-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2373-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2374-768x1024.jpeg)
+
+**Today’s highlights:** the entrance to Kanazawa station; picking up sushi from a conveyor belt.
+
+**Stray observations:**
+
+- Every place you go to in Japan, there’s a hand sanitizer at the entrance. Every place that has chairs, half of them are blocked for social distancing. Many restaurants check your temperature upon entry.
+
+- Every time a Japanese person with an iPhone offers to send me a picture, they suggest Air Drop. I’d forgotten this feature existed. People here use it all the time, but abroad I’ve never done it.
+
+- Turns out you can adjust the height of the head rest on train seats. Thank god.
+
+## 24 February 2023
+
+- 8:40-8:55 bus from Kanazawa station to Hirokoji
+
+- 9:30-10:10 tour of Ninja-dera (reservation required, only by phone, held only in Japanese)
+
+- Late morning: Tokyu Hands, Kenrokuen (1h)
+
+- Omicho market
+
+- Kanazawa castle (30m), Higashi-Chaya district (30-60m)
+
+- Kenrokuen light-up illuminations (30m)
+
+### Ninja-dera Temple
+
+Today started early with a booking the hotel receptionist had made for me yesterday. I went to Ninja-dera, a temple nicknamed thus due to its many secret door and traps. Tours were held only in Japanese.
+
+We took off our shoes at the entrance and deposited our bags. From here on, photography was prohibited.
+
+The temple was old, wooden and old, so everything creaked. We walked slowly and furtively as the guide lectured about the contraptions in lightning-fast Japanese. Hidden passageways, trap doors – It reminded me of Anne Frank’s house, except way more elaborate, and way less tragic.
+
+Sadly, half of the temple was off-limits.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2382-1024x768.jpeg)
+
+### Kenroku-en Garden
+
+Next, I walked toward Kenrokuen, the most famous garden in Japan. Along the way, I stopped at Tokyu Hands, because I needed a new journal.
+
+The garden was beautiful, even on a cloudy winter day. The water was as clear as it could get. Crows were cawing, a waterfall was flowing; locals dressed in kimonos were strolling around.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2384-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2385-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2386-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2388-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2389-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2392-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2394-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2396-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2398-1024x768.jpeg)
+
+I was musing on how some companionship would have made this garden even more enjoyable, when I chanced upon someone my age I’d recognised from the Ninja-dera tour. We were the only foreigners in our group. After exchanging a few words in English, we realised we were both from Israel.
+
+Running into someone from Tel-Aviv in Japan and conversing in Hebrew was not on my list of expectations for this trip.
+
+He was really nice, and we chatted and explored the garden, before heading off to Omicho market for lunch. The dish I ate was delicious, but the fish I’d had in Sapporo’s market were much better.
+
+For dessert (because I was still hungry), I bought a gold leaf ice cream. Gold leaf doesn’t really have any taste, beside texture. Kanazawa is known for it, so I had to give it a shot.
+
+After lunch, the fellow Israeli and I parted ways. He continued to another city, whereas I to the castle.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2400-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2401-1024x768.jpeg)
+
+### Higashi-Chaya District
+
+Next on my itinerary was Higashi-Chaya. A charming, traditional district, with small alleyways and low, wooden buildings. There were eateries and shops specialising in gold leaf products. I used this opportunity to stock on a couple of souvenirs.
+
+Not a minute in Higashi-Chaya went by without seeing young Japanese men and women dressed in yukata or kimono. It was my first time experiencing this traditional Japanese town vibe.
+
+Needless to say, I found Kanazawa a million times preferable to Sendai.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2402-1-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2404-1-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2413-1-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2411-1-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2409-1-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2417-1024x768.jpeg)
+
+### Kenroku-en Garden... Again
+
+I had an hour or so to kill while waiting for sunset to bring with it Kenrokuen’s night illuminations. So I wrote all this on a bench.
+
+When the entrance gates opened, everyone whipped out their phones like soldiers unsheathing swords before battle. It felt a bit like an Instagram fest, albeit rightly so, since the garden was just as impressive at dusk.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2420-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2425-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2427-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2429-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2435-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2436-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2438-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2441-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2445-1024x768.jpeg)
+
+I walked half an hour back to my hotel, and spent another hour chatting with the receptionist and her older sister.
+
+**Today’s highlights**: running into a tourist from Tel Aviv in Japan; the abundance of kimonos in Higashi-Chaya; and the clear water of Kenrokuen at day and night.
+
+## 25 February 2023
+
+- 9:10-10:30 Kanazawa to Shirakawa-go bus
+
+- Exploring Shirakawa-go (I had a lot of time, but 2h are enough)
+
+- Lunch at Keyaki
+
+- 14:45-15:30 Shirakawa-go to Ainokura bus
+
+Today I left Kanazawa, a bit blue because it was a pleasant old city, but at the same time I’d managed to tick all its important boxes.
+
+Kanazawa offered 0-10 degrees (which, inexplicably, felt like -10 in Sapporo), plus the occasional drizzle. This morning, it snowed a little.
+
+It was interesting how once again, locals had found my Japanese worthy of inquiry. It wasn't the attention that gave me a warm feeling, but the fact I was making more conversations.
+
+Upon checking out, I asked the World’s Best Receptionist’s older sister to give her a souvenir from me.
+
+### Shirakawa-go
+
+The bus ride to Shirakawa-go was like going back in time. Snow accumulated more and more, until I returned to a landscape covered by a blanket of white. I grew nostalgic for Hokkaido and the Aomori prefecture, and thrilled that I’d returned to full winter mode.
+
+Then the bus went through lots of mountain tunnels: a sign I’d made it to the Japanese Alps. It occurred to me that snowy mountains were my favorite view.
+
+Shirakawa-go was exactly what I’d expected. A small town full of traditional farmhouses. It was possible to visit a few of them, now opened as museums. They were obviously old and creaky, with low ceilings and sliding doors, and housed tools their inhabitants has used to make sake and weave fabrics and stuff like that.
+
+There was also an observatory one could climb to (or take the bus).
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2455-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2458-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2459-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2461-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2465-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2470-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2479-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2482-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2484-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2487-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2489-1024x768.jpeg)
+
+I hung out with two tourists, one from Germany and the other from Hong Kong. We went to lunch. It was snowing quite a lot; snowflakes were caressing my fingers and phone, before dissolving. I could see myself living in a place like this, at least for a while.
+
+After lunch, I stocked on more souvenirs, and took the bus with the tourists, who would also be spending the night in Ainokura. Upon their recommendation, I got off along the way, and visited Kuroba Onsen.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2497-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2502-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2509-1024x768.jpeg)
+
+### Kuroba Onsen
+
+My new thing is asking people if they know any good rotenburos. Can’t get enough of those.
+
+Once again: boiling water, rocky pool; freezing air, falling snow. Ice melting from the roof.
+
+I sound like a broken record by now, having gone to so many of these baths, but I really can’t praise them enough. This one had a view of a lake and snowy mountains. I wish I had snuck my phone in.
+
+Sure, it was me and a bunch of Japanese men again, and I got some funny looks. But every wintery rotenburo I’d been to was a unique experience, and I kept thinking how I would miss it. I could already tell the south had a different vibe from the north.
+
+I can’t imagine returning to Japan and not re-visiting Hokkaido in winter. I met lots of tourists who had come for it alone. It’s weird how Israeli people completely overlook it.
+
+It was snowing cats and dogs on my way out (is that an expression? I used “heavily” too many times now). I took the bus and checked into my accommodation at the literal last minute.
+
+### Ainokura
+
+Ainokura was even more magical than Shirakawa-go. The latter was very popular and touristy; the former was smaller and less known. (I’d mentioned this place to a few Japanese people, and they’d blinked at me in surprise.) It only had twenty or so traditional farm houses open to guests. I stayed in one of those.
+
+Setting foot into this tiny, remote, snowy village in the middle of nowhere, and checking into a traditional Japanese home where everything was wooden and creaky and old and heated, made me feel like I was back in Hokkaido.
+
+The sliding doors; the cushions doubling as seats on the floor; the futon, with its small, hard pillow full of buckwheat; ducking whenever I entered a room, carrying my luggage instead of dragging it on the tatami, changing to slippers when I walked around and to a second pair of slippers while in the restroom; wearing a yukata and borrowing knee-high boots to explore the area – It struck me how much I’d grown fond of this, after spending the previous four nights in a capsule hotel, a ferry, and a western hotel.
+
+I’m not sure, but I think I felt that I was where I belonged.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2514-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2517-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2519-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2532-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2540-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2543-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2547-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2548-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2527-1024x768.jpeg)
+
+I was surprised to discover at dinner that it was, yet again, just me and a Japanese guest. (The owner told us that the previous night, there were nine guests.) Unlike the previous places I’d stayed in, this one had an irori, a traditional fireplace for cooking fish on a stick.
+
+We ate and chatted for an hour and a half. I got loads of tips from the guest. Then I asked the owner if there was a kotatsu.
+
+Before coming to Japan, using a kotatsu (heated table) was one of the experiences at the top of my bucket list. Yet, as it turns out, Japanese people don’t really use these anymore; they’re kind of old-school. Every place I’d been to had had a modern air conditioner and a heater.
+
+If I didn't manage to run into one in winter, I doubt I will in the future, now that spring is on the corner. I'm sad I didn't get to see one in real life.  
+
+But then the owner offered me an alternative I hadn’t heard of: a box containing a mametan (a charcoal briquette).
+
+A bit like those bottles filled with hot water one might find in the west, though this one was used to store a charcoal fresh off the irori. Unlike a bottle, it could remain hot until the morning.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2551-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2555-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2561-1024x768.jpeg)
+
+After dinner, I met the two tourists at their farm place. My head began to hurt from tiredness, so I only took a sip of their sake. But we had fun hanging out for two hours, until we realised what time it was. I hurried to my place, praying it wasn’t locked, which it wasn’t, and went straight to my futon, exhausted from lack of sleep, yet warm and cosy with my mametan for the night.
+
+**Today’s highlights:** returning to snow and traditional housing; sleeping with a mametan.
+
+## 26 February 2023
+
+- Breakfast at accommodation
+
+- 10:00-10:30 Ainokura to Johana station bus, 11:00-11:45 Johanna to Shin-Takaoka train, 12:10-13:20 Shin-Takaoka to Nagano Shinkansen
+
+- Lunch on the Shinkansen (thank god eating is allowed)
+
+- 14:00-14:50 Nagano to Matsumoto train
+
+- Afternoon: Matsumoto museum of art (1h)
+
+Today during breakfast, the Japanese guest and I again talked a bunch, and she gave me dark chocolate and a potato snack.
+
+Speaking with locals had proven a very useful means of encountering new Japanese snacks. I’d been getting small stuff, whether snacks, a postcard, a napkin, or stickers from fellow guests and staff members at the post office or tourist information centres.
+
+I handed today’s fellow guest one of the souvenirs I’d bought in Kanazawa, but she wouldn’t accept it. It was the first time a Japanese person refused to let me give them something in return.
+
+After breakfast, I had a brief time to rent a sled and attempt to slide down the disappointingly flat slopes around. I think the last time I did this was when I was 12.
+
+Another long train ride(s) ensued. This is what happens when you go to remote places. But it’s so worth it.
+
+At Nagano, I said goodbye to the two tourists, and continued to Matsumoto.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2567-768x1024.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2570-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2571-1024x768.jpeg)
+
+### Matsumoto Museum of Art
+
+On the train, I began formulating an itinerary, based on my list of attractions. I discovered that the local museum would be closed tomorrow, and decided to head there straight from the station, to have enough time before closing.
+
+My first art museum in Japan! Thank god even museums have coin lockers here. I was pleasantly surprised to see my money returned to me upon reclaiming my luggage. I wondered if this happened in other museums, too.
+
+The museums was pretty small, with the focal point being an exhibition by Matsumoto-native Kusama Yayoi. Photography was prohibited.
+
+There was a dark room with a chandelier, reflected endlessly on the mirrors that covered each wall. In another dark room, a neon ladder stretched so long, you couldn’t see its beginning or end. I looked down at the abyss it rose from, and shuddered. It was really creepy.
+
+There was an infinity room, which I could enter by myself and shut the door. Everything was pitch-black, apart from endless reflections of neon balls. I felt like I was in outer space, surrounded by stars and planets.
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2582-1024x462.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2586-1024x768.jpeg)
+
+![](https://kesem.co.uk/wp-content/uploads/2024/06/IMG_2588-1024x768.jpeg)
+
+Afterwards, I checked into my hotel. Every city I visited (and would visit) in Japan, I stayed in the centre. I’d managed to find accommodation in great locations for relatively cheap, so as to not waste time on commuting.
+
+Plus, my rooms at business hotels so far were equipped with soundproof windows, so I didn’t hear any noise from the street.
+
+Matsumoto looked like my kind of city.
+
+At the lobby, I ran into a couple of French tourists. Whenever I see Western tourists inhabit the same space as me, I usually spark a conversation with them by pointing that out. It’s not an excuse or anything; I am genuinely surprised enough to say it out loud. Yesterday, for example, they were the first tourists I saw in Matsumoto, regardless of race. From lunch to dinner, it was just me and locals; I was the only person dragging a suitcase down the streets.
+
+The French tourists and I talked a bunch. They gave me amazing tips, some of which no one had given me yet. They were the first people who had done a trek I’d been planning to do by myself. Japanese people had told me it sounded dangerous, but the French couple reassured me that it wasn’t.
+
+They even told me they’d had multiple instances of Japanese people moving away from them on trains.
+
+**Random thoughts:**
+
+**Today's highlights**: attempting to use a sled; the Kusama exhibition.
+
+- Apparently there are non-reserved carriages on the Shinkansen, but I think they differ between lines. It’s no problem to reserve a seat right before boarding, though, as long as there are vacancies.
+
+- The train is so fast that your ears become clogged, like in airplanes. There’s also a stewardess shoving around a food cart.
+
+- I’ve finally learned how to unwrap a konbini onigiri. Next goal: mastering chopsticks.
+
+- I keep seeing Pokémon signs and stickers inside buses. Today I even saw a Bidoof snack at 7/11. And later, a kid walking around with a large Pikachu plush.
+
+- There was a ton of Higurashi No Nako Koro Ni merch in Shirakawa-go. Does the anime take place there, and I forgot? It transported me back to middle school. Good times.
+
+- Some hotels require you to leave your room key at the reception when you go out, while others let you take it along with you.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NAM3rJx0GL8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>

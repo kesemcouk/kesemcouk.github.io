@@ -1,0 +1,23 @@
+  @import url("https://fonts.googleapis.com/css2?family=Lato:wght@300;400;500;700&family=Roboto:wght@100;300;400&family=Noto+Serif+JP:wght@300;400;500&family=Noto+Serif+KR:wght@300;400;500&family=Noto+Serif+Hebrew:wght@300;400;500&display=swap");
+
+  :root {
+    --font-latin: "Lato";
+    --font-ui: "Roboto";
+    --font-ja: "Noto Serif JP";
+    --font-ko: "Noto Serif KR";
+    --font-he: "Noto Serif Hebrew";
+    --font-stack: var(--font-latin), var(--font-ja), var(--font-ko), var(--font-he), serif;
+    --font-ui-stack: var(--font-ui), var(--font-ja), var(--font-ko), var(--font-he), serif;
+  }
+
+  :lang(ja) {
+    font-family: var(--font-ja), serif;
+  }
+
+  :lang(ko) {
+    font-family: var(--font-ko), serif;
+  }
+
+  :lang(he) {
+    font-family: var(--font-he), serif;
+  }

@@ -1,0 +1,145 @@
+---
+layout: default
+---
+
+{% include home_button.html %}
+{% include nav.html %}
+{% include no_copy_select.html %}
+
+<div class="category-page">
+  <header class="series-header">
+    <h1 class="post-title series-title">
+      {% if page.title_html %}
+        {{ page.title_html }}
+      {% else %}
+        {{ page.title | escape }}
+      {% endif %}
+    </h1>
+    {% if page.subtitle %}
+    <p class="post-subtitle">
+      {% if page.subtitle_lang %}
+      <span class="subtitle-ja" lang="{{ page.subtitle_lang }}">{{ page.subtitle }}</span>
+      {% else %}
+      <span class="subtitle-ja">{{ page.subtitle }}</span>
+      {% endif %}
+    </p>
+    {% endif %}
+  </header>
+  {% if page.description %}
+  <p class="category-description">{{ page.description }}</p>
+  {% endif %}
+
+  {% assign category = page.category | default: page.category_slug | default: page.category_name %}
+  {% if category == nil or category == "" %}
+    {% assign category = page.categories | first %}
+  {% endif %}
+  {% if category %}
+    {% assign category_posts = site.posts | where_exp: "post", "post.categories contains category" %}
+  {% endif %}
+
+  {{ content }}
+
+  {% if category_posts and category_posts.size > 0 %}
+  <ul class="category-posts">
+    {% for post in category_posts %}
+    <li class="category-post">
+      <a href="{{ post.url | relative_url }}">
+        {{ post.title }}
+        {% if post.subtitle %}
+        <span class="category-post-subtitle">
+          {% if post.subtitle_lang %}
+          <span class="subtitle-ja" lang="{{ post.subtitle_lang }}">{{ post.subtitle }}</span>
+          {% else %}
+          <span class="subtitle-ja">{{ post.subtitle }}</span>
+          {% endif %}
+        </span>
+        {% endif %}
+      </a>
+      <span class="category-post-date">{{ post.date | date: "%B %d, %Y" }}</span>
+    </li>
+    {% endfor %}
+  </ul>
+  {% else %}
+  <p class="category-empty">No posts yet.</p>
+  {% endif %}
+</div>
+
+<style>
+  {% include font_styles.html %}
+
+  body,
+  .page-content,
+  .category-page {
+    font-family: var(--font-stack);
+    font-weight: 500;
+  }
+  .site-header {
+    display: none !important;
+  }
+  .post-header {
+    display: none;
+  }
+  {% include nav_styles.html %}
+  .category-page {
+    max-width: 900px;
+    margin: 0 auto;
+    padding: 20px 20px 30px;
+    line-height: 1.75;
+  }
+  .series-header {
+    margin: 0 0 20px;
+    --title-size: 2rem;
+  }
+  .series-title {
+    margin: 0 0 8px;
+    font-weight: 500;
+    font-size: var(--title-size);
+  }
+  .post-subtitle {
+    margin: 0 0 12px;
+    font-size: calc(var(--title-size) * 0.8);
+    color: #666;
+  }
+  .post-subtitle .subtitle-ja {
+    font-weight: 300;
+  }
+  .category-description {
+    margin: 0 0 20px;
+    color: #666;
+  }
+  .category-posts {
+    list-style: none;
+    padding: 0;
+    margin: 0;
+  }
+  .category-post {
+    display: flex;
+    justify-content: space-between;
+    gap: 16px;
+    padding: 10px 0;
+    border-bottom: 1px solid #e3e3e3;
+  }
+  .category-post a {
+    text-decoration: none;
+    display: flex;
+    flex-direction: column;
+    gap: 2px;
+  }
+  .category-post-subtitle {
+    font-size: 1em;
+    color: #666;
+    line-height: 1.2;
+  }
+  .category-post-subtitle .subtitle-ja {
+    font-weight: 300;
+  }
+  .category-post-date {
+    color: #888;
+    white-space: nowrap;
+    font-size: 0.9em;
+  }
+  .category-empty {
+    color: #888;
+    font-style: italic;
+  }
+</style>

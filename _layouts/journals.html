@@ -1,0 +1,255 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>{{ site.title }}</title>
+    <style>
+        {% include font_styles.html %}
+        body {
+            margin: 0;
+            font-family: var(--font-ui-stack);
+            background-color: #F8F8F8; /* Very light grey, almost white */
+            color: #4A4A4A; /* Dark, soft grey */
+            font-weight: 100; /* Ultra-thin font weight */
+        }
+        h1, h2, h3, h4, h5, h6 {
+            font-weight: 300; /* Slightly bolder for headings, but still thin */
+        }
+        .journals-header {
+            display: flex;
+            flex-wrap: wrap;
+            gap: 0; /* No space between columns */
+            padding: 0;
+            width: 100%; /* Ensure it spans full width */
+            /* Removed background-color as images will span full width */
+        }
+        .journal-item {
+            position: relative;
+            flex: 1; /* Make items take up equal space, distributing width */
+            min-width: 200px; /* Minimum width for each column to prevent excessive shrinking */
+            height: 600px; /* Doubled height for each column */
+            overflow: hidden;
+            border-radius: 0; /* No border radius */
+            box-shadow: none; /* No box shadow */
+            transition: transform 0.3s ease;
+        }
+        .journal-item:hover {
+            transform: translateY(-5px);
+        }
+        .journal-item img {
+            width: 100%;
+            height: 100%;
+            object-fit: cover;
+            display: block;
+        }
+        .journal-overlay {
+            position: absolute;
+            top: 0;
+            left: 0;
+            width: 100%;
+            height: 100%;
+            background: rgba(0, 0, 0, 0.5); /* Dark overlay */
+            color: white;
+            display: flex;
+            flex-direction: column;
+            justify-content: flex-start;
+            align-items: center; /* Center horizontally */
+            text-align: center; /* Center text */
+            padding: 70px 15px 15px 15px; /* Increased top padding even further */
+            box-sizing: border-box;
+            opacity: 1; /* Always visible */
+            transition: background 0.3s ease;
+        }
+        .journal-item:hover .journal-overlay {
+            background: rgba(0, 0, 0, 0.7); /* Darker on hover */
+        }
+        .journal-overlay h3 {
+            margin: 0 0 5px 0;
+            font-size: 1.4em;
+            font-weight: 400;
+        }
+        .journal-overlay p {
+            margin: 0;
+            font-size: 0.9em;
+            font-weight: 300;
+        }
+        {% include nav_styles.html %}
+        .content-section {
+            display: flex;
+            align-items: center;
+            padding: 50px 20px;
+            max-width: 1000px;
+            margin: 0 auto;
+            gap: 40px;
+        }
+        .profile-picture {
+            flex-shrink: 0;
+            width: 200px;
+            height: 200px;
+            border-radius: 50%;
+            object-fit: cover;
+            border: 5px solid #D3D3D3; /* Light grey border */
+            box-shadow: 0 0 10px rgba(0,0,0,0.1);
+        }
+        .biography {
+            flex-grow: 1;
+            line-height: 1.6;
+        }
+        .landing-title {
+            font-weight: 300; /* Ensure the title is also thin */
+            text-align: center;
+            margin-bottom: 30px;
+        }
+        .footer {
+            margin-top: 60px;
+            padding: 36px 20px 44px;
+            border-top: 1px solid rgba(0, 0, 0, 0.06);
+            background: linear-gradient(135deg, #f6f3ee 0%, #eef3f6 55%, #f6f7f2 100%);
+            position: relative;
+            overflow: hidden;
+            width: 100%;
+        }
+        .footer::before,
+        .footer::after {
+            content: "";
+            position: absolute;
+            width: 320px;
+            height: 320px;
+            border-radius: 50%;
+            background: radial-gradient(circle, rgba(0, 0, 0, 0.06), rgba(0, 0, 0, 0));
+            z-index: 0;
+        }
+        .footer::before {
+            top: -140px;
+            right: -120px;
+        }
+        .footer::after {
+            bottom: -180px;
+            left: -120px;
+        }
+        .footer .footer-shell {
+            position: relative;
+            z-index: 1;
+            display: grid;
+            grid-template-columns: minmax(240px, 1.2fr) minmax(180px, 1fr) minmax(180px, 0.9fr);
+            gap: 24px 32px;
+            max-width: 1100px;
+            margin: 0 auto;
+            align-items: start;
+        }
+        .footer .footer-brand {
+            display: flex;
+            gap: 14px;
+            align-items: flex-start;
+        }
+        .footer .footer-avatar {
+            width: 56px;
+            height: 56px;
+            border-radius: 999px;
+            object-fit: cover;
+            box-shadow: 0 10px 18px rgba(0, 0, 0, 0.12);
+        }
+        .footer .footer-title {
+            text-transform: uppercase;
+            letter-spacing: 0.3em;
+            font-size: 0.75rem;
+            color: #1f2a30;
+        }
+        .footer .footer-slogan {
+            margin: 8px 0 0;
+            color: #4a4a4a;
+            font-size: 0.98em;
+            line-height: 1.5;
+        }
+        .footer .footer-label {
+            text-transform: uppercase;
+            letter-spacing: 0.22em;
+            font-size: 0.7rem;
+            color: #6a6a6a;
+        }
+        .footer .footer-links-block {
+            display: flex;
+            flex-direction: column;
+            gap: 10px;
+        }
+        .footer .footer-nav {
+            display: grid;
+            grid-template-columns: repeat(2, minmax(120px, 1fr));
+            gap: 6px 18px;
+        }
+        .footer .footer-nav a {
+            text-decoration: none;
+            color: #1f2a30;
+            font-weight: 500;
+            font-size: 0.95em;
+        }
+        .footer .footer-nav a:hover {
+            color: #000000;
+            text-decoration: underline;
+        }
+        .footer .footer-contact {
+            display: flex;
+            flex-direction: column;
+            gap: 8px;
+        }
+        .footer .footer-email {
+            color: #1f2a30;
+            font-weight: 600;
+            text-decoration: none;
+        }
+        .footer .footer-email:hover {
+            text-decoration: underline;
+        }
+        .footer .footer-meta {
+            color: #6a6a6a;
+            font-size: 0.85em;
+        }
+        @media (max-width: 840px) {
+            .footer .footer-shell {
+                grid-template-columns: 1fr;
+            }
+            .footer .footer-nav {
+                grid-template-columns: repeat(2, minmax(140px, 1fr));
+            }
+        }
+        @media (max-width: 520px) {
+            .footer .footer-nav {
+                grid-template-columns: 1fr;
+            }
+        }
+    </style>
+</head>
+<body>
+    {% include no_copy_select.html %}
+    <h1 style="text-align: left; font-size: 3em; margin-top: 50px; margin-bottom: 30px; padding-left: 15px;">{{ page.title }}</h1>
+    <div class="journals-header">
+        {% for journal in page.journals %}
+        <a href="{{ journal.permalink | relative_url }}" class="journal-item">
+            <img src="{{ journal.photo_url }}" alt="{{ journal.title }}">
+            <div class="journal-overlay">
+                <h3>{{ journal.title }}</h3>
+                <p>{{ journal.subtitle }}</p>
+                {% if journal.date_range %}
+                <br><br>
+                <p>{{ journal.date_range }}</p>
+                {% endif %}
+            </div>
+        </a>
+        {% endfor %}
+    </div>
+
+    {% include nav.html %}
+
+    <div class="content-section">
+        <img src="{{ page.bio_picture }}" alt="Profile Picture" class="profile-picture">
+        <div class="biography">
+            {{ content }}
+        </div>
+    </div>
+
+    <footer class="footer">
+        {% include footer_content.html %}
+    </footer>
+</body>
+</html>

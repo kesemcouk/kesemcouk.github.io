@@ -1,0 +1,43 @@
+<nav class="navbar">
+  <a href="/about/"><span class="nav-en">About</span><span class="nav-ja" lang="ja">私について</span></a>
+  {% assign series_pages = site.pages | where: "layout", "series" %}
+  {% assign journal_series = series_pages | where: "series_type", "journals" | sort: "title" %}
+  {% assign travel_series = series_pages | where: "series_type", "travel-logs" | sort: "title" %}
+  <div class="nav-dropdown">
+    <a class="nav-link nav-link-static" href="#" onclick="return false;" aria-haspopup="true"><span class="nav-en">Journals</span><span class="nav-ja" lang="ja">日記</span></a>
+    <div class="nav-dropdown-menu">
+      {% for series_page in journal_series %}
+      {% assign dropdown_subtitle = series_page.subtitle | default: series_page.title %}
+      <a href="{{ series_page.url | relative_url }}">
+        <span class="dropdown-title">{{ series_page.title }}</span>
+        {% if series_page.subtitle_lang %}
+        <span class="dropdown-subtitle" lang="{{ series_page.subtitle_lang }}">{{ dropdown_subtitle }}</span>
+        {% else %}
+        <span class="dropdown-subtitle">{{ dropdown_subtitle }}</span>
+        {% endif %}
+      </a>
+      {% endfor %}
+    </div>
+  </div>
+  <div class="nav-dropdown">
+    <a class="nav-link nav-link-static" href="#" onclick="return false;" aria-haspopup="true"><span class="nav-en">Travel logs</span><span class="nav-ja" lang="ja">紀行文</span></a>
+    <div class="nav-dropdown-menu">
+      {% for series_page in travel_series %}
+      {% assign dropdown_subtitle = series_page.subtitle | default: series_page.title %}
+      <a href="{{ series_page.url | relative_url }}">
+        <span class="dropdown-title">{{ series_page.title }}</span>
+        {% if series_page.subtitle_lang %}
+        <span class="dropdown-subtitle" lang="{{ series_page.subtitle_lang }}">{{ dropdown_subtitle }}</span>
+        {% else %}
+        <span class="dropdown-subtitle">{{ dropdown_subtitle }}</span>
+        {% endif %}
+      </a>
+      {% endfor %}
+    </div>
+  </div>
+  <a href="/original-music/"><span class="nav-en">Original music</span><span class="nav-ja" lang="ja">作曲</span></a>
+  <a href="/stand-up-comedy/"><span class="nav-en">Stand up comedy</span><span class="nav-ja" lang="ja">スタンドアップ</span></a>
+  <a href="/published-works/"><span class="nav-en">Published works</span><span class="nav-ja" lang="ja">掲載作品</span></a>
+  <a href="/poems/"><span class="nav-en">Poems</span><span class="nav-ja" lang="ja">詩</span></a>
+  <a href="/contact/"><span class="nav-en">Contact</span><span class="nav-ja" lang="ja">連絡</span></a>
+</nav>

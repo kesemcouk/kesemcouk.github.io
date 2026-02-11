@@ -1,0 +1,597 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Kesem</title>
+    <style>
+          @import url("https://fonts.googleapis.com/css2?family=Lato:wght@300;400;500;700&family=Roboto:wght@100;300;400&family=Noto+Serif+JP:wght@300;400;500&family=Noto+Serif+KR:wght@300;400;500&family=Noto+Serif+Hebrew:wght@300;400;500&display=swap");
+
+  :root {
+    --font-latin: "Lato";
+    --font-ui: "Roboto";
+    --font-ja: "Noto Serif JP";
+    --font-ko: "Noto Serif KR";
+    --font-he: "Noto Serif Hebrew";
+    --font-stack: var(--font-latin), var(--font-ja), var(--font-ko), var(--font-he), serif;
+    --font-ui-stack: var(--font-ui), var(--font-ja), var(--font-ko), var(--font-he), serif;
+  }
+
+  :lang(ja) {
+    font-family: var(--font-ja), serif;
+  }
+
+  :lang(ko) {
+    font-family: var(--font-ko), serif;
+  }
+
+  :lang(he) {
+    font-family: var(--font-he), serif;
+  }
+
+        body {
+            margin: 0;
+            font-family: var(--font-stack);
+            background-color: #F8F8F8; /* Very light grey, almost white */
+            color: #4A4A4A; /* Dark, soft grey */
+            font-weight: 400;
+        }
+        h1, h2, h3, h4, h5, h6 {
+            font-weight: 400; /* Slightly bolder for headings */
+        }
+        .slideshow-container {
+            position: relative;
+            width: 100%;
+            height: 600px; /* Increased height */
+            overflow: hidden;
+        }
+        .mySlides {
+            display: none;
+            width: 100%;
+            height: 100%;
+            object-fit: cover;
+            position: absolute;
+            top: 0;
+            left: 0;
+            animation: fade 1.5s;
+        }
+        /* Next & previous buttons */
+        .prev, .next {
+            cursor: pointer;
+            position: absolute;
+            top: 50%;
+            width: auto;
+            padding: 16px;
+            margin-top: -22px;
+            color: white;
+            font-weight: bold;
+            font-size: 18px;
+            transition: 0.6s ease;
+            border-radius: 0 3px 3px 0;
+            user-select: none;
+            background-color: rgba(0,0,0,0.5);
+        }
+        /* Position the "next button" to the right */
+        .next {
+            right: 0;
+            border-radius: 3px 0 0 3px;
+        }
+        /* On hover, add a black background color with a little more opacity */
+        .prev:hover, .next:hover {
+            background-color: rgba(0,0,0,0.8);
+        }
+        @keyframes fade {
+            from {opacity: .4}
+            to {opacity: 1}
+        }
+          .series-home {
+    text-align: center;
+    padding: 0 0 6px;
+  }
+  .series-home-link {
+    display: inline-block;
+    color: #000000;
+    text-decoration: none;
+    font-weight: 500;
+    letter-spacing: 0.08em;
+    text-transform: uppercase;
+    font-size: 1.5rem;
+    transition: transform 0.2s ease;
+  }
+  .series-home-link:hover {
+    color: #000000;
+    text-decoration: none;
+    transform: scale(1.2);
+  }
+  .navbar {
+    background: transparent;
+    border-bottom: 1px solid rgba(0, 0, 0, 0.06);
+    overflow: visible;
+    text-align: center;
+    padding: 8px 0;
+    width: 100vw;
+    position: relative;
+    left: 50%;
+    right: 50%;
+    margin-left: -50vw;
+    margin-right: -50vw;
+  }
+  .navbar a,
+  .navbar .nav-link {
+    display: inline-grid;
+    place-items: center;
+    color: #3C4A50;
+    text-align: center;
+    padding: 8px 14px;
+    text-decoration: none;
+    font-weight: 500;
+    letter-spacing: 0.02em;
+    border-radius: 999px;
+    border: 2px solid transparent;
+    transition: color 0.2s ease, background-color 0.2s ease;
+  }
+  .navbar a:hover,
+  .navbar .nav-link:hover {
+    background-color: #E6EAED;
+    border-color: transparent;
+    color: #1F2A30;
+  }
+  .navbar a .nav-en,
+  .navbar a .nav-ja,
+  .navbar .nav-link .nav-en,
+  .navbar .nav-link .nav-ja {
+    grid-area: 1 / 1;
+    white-space: nowrap;
+  }
+  .navbar a .nav-ja,
+  .navbar .nav-link .nav-ja {
+    visibility: hidden;
+  }
+  .navbar a:hover .nav-en,
+  .navbar .nav-link:hover .nav-en {
+    visibility: hidden;
+  }
+  .navbar a:hover .nav-ja,
+  .navbar .nav-link:hover .nav-ja {
+    visibility: visible;
+    color: #000000;
+  }
+  .nav-dropdown {
+    position: relative;
+    display: inline-block;
+  }
+  .nav-dropdown-menu {
+    position: absolute;
+    top: calc(100% - 2px);
+    left: 50%;
+    transform: translateX(-50%);
+    min-width: 200px;
+    background: #ffffff;
+    border: 1px solid rgba(0, 0, 0, 0.08);
+    border-radius: 16px;
+    box-shadow: 0 12px 24px rgba(0, 0, 0, 0.12);
+    padding: 10px;
+    opacity: 0;
+    pointer-events: none;
+    transition: opacity 0.2s ease, transform 0.2s ease;
+    z-index: 1000;
+  }
+  .nav-dropdown:hover .nav-dropdown-menu {
+    opacity: 1;
+    pointer-events: auto;
+    transform: translateX(-50%) translateY(4px);
+  }
+  .nav-dropdown-menu a {
+    display: grid;
+    place-items: center;
+    padding: 8px 12px;
+    border-radius: 10px;
+    color: #1f2a30;
+    text-decoration: none;
+    font-weight: 500;
+    font-size: 0.92em;
+    text-align: center;
+    width: 100%;
+    box-sizing: border-box;
+    min-height: 36px;
+  }
+  .nav-dropdown-menu a .dropdown-title,
+  .nav-dropdown-menu a .dropdown-subtitle {
+    grid-area: 1 / 1;
+    white-space: nowrap;
+    line-height: 1;
+  }
+  .nav-dropdown-menu a .dropdown-subtitle {
+    visibility: hidden;
+  }
+  .nav-dropdown-menu a:hover .dropdown-title {
+    visibility: hidden;
+  }
+  .nav-dropdown-menu a:hover .dropdown-subtitle {
+    visibility: visible;
+  }
+  .nav-link-static {
+    cursor: default;
+  }
+  .nav-dropdown-menu a:hover {
+    background: #eef2f4;
+  }
+
+        .content-section {
+            display: flex;
+            align-items: center;
+            padding: 50px 20px;
+            max-width: 1000px;
+            margin: 0 auto;
+            gap: 40px;
+        }
+        .profile-picture {
+            flex-shrink: 0;
+            width: 200px;
+            height: 200px;
+            border-radius: 50%;
+            object-fit: cover;
+            border: 5px solid #D3D3D3; /* Light grey border */
+            box-shadow: 0 0 10px rgba(0,0,0,0.1);
+        }
+        .biography {
+            flex-grow: 1;
+            line-height: 1.6;
+            font-weight: 400;
+        }
+        .landing-title {
+            font-weight: 500;
+            text-align: center;
+            margin-bottom: 30px;
+        }
+        .footer {
+            margin-top: 60px;
+            padding: 36px 20px 44px;
+            border-top: 1px solid rgba(0, 0, 0, 0.06);
+            background: linear-gradient(135deg, #f6f3ee 0%, #eef3f6 55%, #f6f7f2 100%);
+            position: relative;
+            overflow: hidden;
+            width: 100%;
+        }
+        .footer::before,
+        .footer::after {
+            content: "";
+            position: absolute;
+            width: 320px;
+            height: 320px;
+            border-radius: 50%;
+            background: radial-gradient(circle, rgba(0, 0, 0, 0.06), rgba(0, 0, 0, 0));
+            z-index: 0;
+        }
+        .footer::before {
+            top: -140px;
+            right: -120px;
+        }
+        .footer::after {
+            bottom: -180px;
+            left: -120px;
+        }
+        .footer .footer-shell {
+            position: relative;
+            z-index: 1;
+            display: grid;
+            grid-template-columns: minmax(240px, 1.2fr) minmax(180px, 1fr) minmax(180px, 0.9fr);
+            gap: 24px 32px;
+            max-width: 1100px;
+            margin: 0 auto;
+            align-items: start;
+        }
+        .footer .footer-brand {
+            display: flex;
+            gap: 14px;
+            align-items: flex-start;
+        }
+        .footer .footer-avatar {
+            width: 56px;
+            height: 56px;
+            border-radius: 999px;
+            object-fit: cover;
+            box-shadow: 0 10px 18px rgba(0, 0, 0, 0.12);
+        }
+        .footer .footer-title {
+            text-transform: uppercase;
+            letter-spacing: 0.3em;
+            font-size: 0.75rem;
+            color: #1f2a30;
+        }
+        .footer .footer-slogan {
+            margin: 8px 0 0;
+            color: #4a4a4a;
+            font-size: 0.98em;
+            line-height: 1.5;
+        }
+        .footer .footer-label {
+            text-transform: uppercase;
+            letter-spacing: 0.22em;
+            font-size: 0.7rem;
+            color: #6a6a6a;
+        }
+        .footer .footer-links-block {
+            display: flex;
+            flex-direction: column;
+            gap: 10px;
+        }
+        .footer .footer-nav {
+            display: grid;
+            grid-template-columns: repeat(2, minmax(120px, 1fr));
+            gap: 6px 18px;
+        }
+        .footer .footer-nav a {
+            text-decoration: none;
+            color: #1f2a30;
+            font-weight: 500;
+            font-size: 0.95em;
+        }
+        .footer .footer-nav a:hover {
+            color: #000000;
+            text-decoration: underline;
+        }
+        .footer .footer-contact {
+            display: flex;
+            flex-direction: column;
+            gap: 8px;
+        }
+        .footer .footer-email {
+            color: #1f2a30;
+            font-weight: 600;
+            text-decoration: none;
+        }
+        .footer .footer-email:hover {
+            text-decoration: underline;
+        }
+        .footer .footer-meta {
+            color: #6a6a6a;
+            font-size: 0.85em;
+        }
+        @media (max-width: 840px) {
+            .footer .footer-shell {
+                grid-template-columns: 1fr;
+            }
+            .footer .footer-nav {
+                grid-template-columns: repeat(2, minmax(140px, 1fr));
+            }
+        }
+        @media (max-width: 520px) {
+            .footer .footer-nav {
+                grid-template-columns: 1fr;
+            }
+        }
+    </style>
+</head>
+<body>
+    <style>
+  *,
+  *::before,
+  *::after {
+    -webkit-touch-callout: none;
+    -webkit-user-select: none;
+    -moz-user-select: none;
+    -ms-user-select: none;
+    user-select: none;
+  }
+
+  img,
+  a {
+    -webkit-user-drag: none;
+  }
+</style>
+
+<script>
+  (function () {
+    function blockEvent(event) {
+      event.preventDefault();
+    }
+
+    ["copy", "cut", "paste", "contextmenu", "selectstart", "dragstart"].forEach(function (eventName) {
+      document.addEventListener(eventName, blockEvent, true);
+    });
+
+    document.addEventListener(
+      "keydown",
+      function (event) {
+        var key = (event.key || "").toLowerCase();
+        var blocked = ["a", "c", "x", "v", "s", "u", "p"];
+        if ((event.ctrlKey || event.metaKey) && blocked.indexOf(key) !== -1) {
+          event.preventDefault();
+        }
+        if (event.key === "F12") {
+          event.preventDefault();
+        }
+      },
+      true
+    );
+  })();
+</script>
+
+    <div class="slideshow-container">
+        
+        <img class="mySlides" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769360373/website_images/2024/02/IMG_8316.jpg" alt="Slideshow Image">
+        
+        <img class="mySlides" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769360661/website_images/2024/01/IMG_7779-scaled.jpg" alt="Slideshow Image">
+        
+        <img class="mySlides" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769361853/website_images/2023/01/20220212_172045-1.jpg" alt="Slideshow Image">
+        
+        <img class="mySlides" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769360932/website_images/2023/02/IMG_2169.jpg" alt="Slideshow Image">
+        
+        <img class="mySlides" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769360071/website_images/2024/04/IMG_3696.jpg" alt="Slideshow Image">
+        
+        <a class="prev" onclick="plusSlides(-1)">&#10094;</a>
+        <a class="next" onclick="plusSlides(1)">&#10095;</a>
+    </div>
+
+    <nav class="navbar">
+  <a href="/about/"><span class="nav-en">About</span><span class="nav-ja" lang="ja">私について</span></a>
+  
+  
+  
+  <div class="nav-dropdown">
+    <a class="nav-link nav-link-static" href="#" onclick="return false;" aria-haspopup="true"><span class="nav-en">Journals</span><span class="nav-ja" lang="ja">日記</span></a>
+    <div class="nav-dropdown-menu">
+      
+      
+      <a href="/coming-out/">
+        <span class="dropdown-title">Coming Out</span>
+        
+        <span class="dropdown-subtitle">カミングアウト</span>
+        
+      </a>
+      
+      
+      <a href="/israel/">
+        <span class="dropdown-title">Israel</span>
+        
+        <span class="dropdown-subtitle">ישראל</span>
+        
+      </a>
+      
+      
+      <a href="/journals/not-what-i-had-in-mind/">
+        <span class="dropdown-title">Not What I Had in Mind</span>
+        
+        <span class="dropdown-subtitle">思っていたのと違う</span>
+        
+      </a>
+      
+      
+      <a href="/journals/sex-and-the-biggest-city/">
+        <span class="dropdown-title">Sex and the Biggest City</span>
+        
+        <span class="dropdown-subtitle">セックス・アンド・ザ・ビゲスト・シティ</span>
+        
+      </a>
+      
+    </div>
+  </div>
+  <div class="nav-dropdown">
+    <a class="nav-link nav-link-static" href="#" onclick="return false;" aria-haspopup="true"><span class="nav-en">Travel logs</span><span class="nav-ja" lang="ja">紀行文</span></a>
+    <div class="nav-dropdown-menu">
+      
+      
+      <a href="/japan-round-one/">
+        <span class="dropdown-title">Japan: Round One</span>
+        
+        <span class="dropdown-subtitle">日本で一回目</span>
+        
+      </a>
+      
+      
+      <a href="/japan-round-two/">
+        <span class="dropdown-title">Japan: Round Two</span>
+        
+        <span class="dropdown-subtitle">日本で二回目</span>
+        
+      </a>
+      
+      
+      <a href="/south-korea/">
+        <span class="dropdown-title">South Korea</span>
+        
+        <span class="dropdown-subtitle" lang="ko">한국</span>
+        
+      </a>
+      
+      
+      <a href="/taiwan-%E8%87%BA%E7%81%A3/">
+        <span class="dropdown-title">Taiwan</span>
+        
+        <span class="dropdown-subtitle">臺灣</span>
+        
+      </a>
+      
+    </div>
+  </div>
+  <a href="/original-music/"><span class="nav-en">Original music</span><span class="nav-ja" lang="ja">作曲</span></a>
+  <a href="/stand-up-comedy/"><span class="nav-en">Stand up comedy</span><span class="nav-ja" lang="ja">スタンドアップ</span></a>
+  <a href="/published-works/"><span class="nav-en">Published works</span><span class="nav-ja" lang="ja">掲載作品</span></a>
+  <a href="/poems/"><span class="nav-en">Poems</span><span class="nav-ja" lang="ja">詩</span></a>
+  <a href="/contact/"><span class="nav-en">Contact</span><span class="nav-ja" lang="ja">連絡</span></a>
+</nav>
+
+
+    <div class="content-section">
+        <img src="https://res.cloudinary.com/det9qfsir/image/upload/v1769493642/profile_a6j6ek.jpg" alt="Profile Picture" class="profile-picture">
+        <div class="biography">
+            <h2 class="landing-title">Konnichiwa. I'm Kesem, a writer who lives in Japan.</h2>
+
+<p>Words have been my oxygen since I began writing fiction at 8 years old. Writing is the reason I live, the thing that keeps me going, and a basic human need.</p>
+
+<p>English isn’t my first language, and I always write in a rush, so apologies for any mistakes.</p>
+
+<p>The following are posts that shed light on my psyche.</p>
+
+        </div>
+    </div>
+
+    <footer class="footer">
+        <div class="footer-shell">
+  <div class="footer-brand">
+    <img class="footer-avatar" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769493642/profile_a6j6ek.jpg" alt="Kesem portrait">
+    <div>
+      <div class="footer-title">Kesem</div>
+      <p class="footer-slogan">The official website of Kesem.<br>A writer, traveler, and artist.</p>
+    </div>
+  </div>
+  <div class="footer-links-block">
+    <span class="footer-label">Explore</span>
+    <nav class="footer-nav" aria-label="Footer">
+  <a href="/about/">About</a>
+  <a href="/journals/">Journals</a>
+  <a href="/original-music/">Original music</a>
+  <a href="/stand-up-comedy/">Stand up comedy</a>
+  <a href="/published-works/">Published works</a>
+  <a href="/poems/">Poems</a>
+  <a href="/contact/">Contact</a>
+</nav>
+
+  </div>
+  <div class="footer-contact">
+    <span class="footer-label">Say hello</span>
+    <a class="footer-email" href="mailto:kesem.contact@gmail.com">kesem.contact@gmail.com</a>
+    <span class="footer-meta">&copy; 2026 Kesem</span>
+  </div>
+</div>
+
+    </footer>
+
+    <script>
+        let slideIndex = 1;
+        showSlides(slideIndex);
+
+        function plusSlides(n) {
+          showSlides(slideIndex += n);
+        }
+
+        function showSlides(n) {
+            let i;
+            let slides = document.getElementsByClassName("mySlides");
+            if (n > slides.length) {slideIndex = 1}
+            if (n < 1) {slideIndex = slides.length}
+            for (i = 0; i < slides.length; i++) {
+                slides[i].style.display = "none";
+            }
+            slides[slideIndex-1].style.display = "block";
+        }
+
+        // Automatic slideshow
+        let autoSlideIndex = 0;
+        autoShowSlides();
+
+        function autoShowSlides() {
+            let i;
+            let slides = document.getElementsByClassName("mySlides");
+            for (i = 0; i < slides.length; i++) {
+                slides[i].style.display = "none";
+            }
+            autoSlideIndex++;
+            if (autoSlideIndex > slides.length) {autoSlideIndex = 1}
+            slides[autoSlideIndex-1].style.display = "block";
+            setTimeout(autoShowSlides, 4000); // Change image every 4 seconds
+        }
+    </script>
+</body>
+</html>

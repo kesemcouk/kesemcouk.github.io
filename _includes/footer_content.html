@@ -1,0 +1,18 @@
+<div class="footer-shell">
+  <div class="footer-brand">
+    <img class="footer-avatar" src="https://res.cloudinary.com/det9qfsir/image/upload/v1769493642/profile_a6j6ek.jpg" alt="Kesem portrait">
+    <div>
+      <div class="footer-title">{{ site.title }}</div>
+      <p class="footer-slogan">{{ site.description | replace_first: ". ", ".<br>" }}</p>
+    </div>
+  </div>
+  <div class="footer-links-block">
+    <span class="footer-label">Explore</span>
+    {% include footer_links.html %}
+  </div>
+  <div class="footer-contact">
+    <span class="footer-label">Say hello</span>
+    <a class="footer-email" href="mailto:kesem.contact@gmail.com">kesem.contact@gmail.com</a>
+    <span class="footer-meta">&copy; {{ 'now' | date: "%Y" }} {{ site.title }}</span>
+  </div>
+</div>

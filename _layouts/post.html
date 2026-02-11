@@ -1,0 +1,323 @@
+---
+layout: default
+---
+
+{% include home_button.html %}
+{% include nav.html %}
+{% include no_copy_select.html %}
+
+{% assign share_url = page.url | absolute_url | uri_escape %}
+{% assign share_title = page.title | default: site.title | uri_escape %}
+{% assign word_count = content | number_of_words %}
+{% assign read_wpm = 220 %}
+{% assign read_minutes = word_count | plus: read_wpm | minus: 1 | divided_by: read_wpm %}
+
+<div class="category-page">
+  <header class="series-header">
+    <h1 class="post-title series-title">
+      {% if page.title_html %}
+        {{ page.title_html }}
+      {% else %}
+        {{ page.title | escape }}
+      {% endif %}
+    </h1>
+    {% if page.subtitle %}
+    <p class="post-subtitle">
+      {% if page.subtitle_lang %}
+      <span class="subtitle-ja" lang="{{ page.subtitle_lang }}">{{ page.subtitle }}</span>
+      {% else %}
+      <span class="subtitle-ja">{{ page.subtitle }}</span>
+      {% endif %}
+    </p>
+    {% endif %}
+  </header>
+  {% if page.description %}
+  <p class="category-description">{{ page.description }}</p>
+  {% endif %}
+
+  <div class="readtime-pill" aria-label="Estimated reading time" style="--readtime: {{ read_minutes }};">
+    <span class="readtime-text">
+      <svg class="readtime-icon" viewBox="0 0 24 24" aria-hidden="true" focusable="false">
+        <path d="M12 2a10 10 0 1 0 10 10A10 10 0 0 0 12 2Zm0 2a8 8 0 1 1-8 8 8 8 0 0 1 8-8Zm-1 2v6.2l4.6 2.7 1-1.7-3.6-2.1V6Z"/>
+      </svg>
+      {% if read_minutes == 1 %}
+        1 min read
+      {% else %}
+        {{ read_minutes }} min read
+      {% endif %}
+    </span>
+  </div>
+
+  <div class="post-content{% if page.categories contains 'poems' %} poem-content{% endif %}">
+    {{ content }}
+  </div>
+
+  <nav class="post-nav" aria-label="Post navigation">
+    {% if page.previous %}
+    <a class="post-nav-link post-nav-prev" href="{{ page.previous.url | relative_url }}">
+      <span class="post-nav-label">Previous</span>
+      <span class="post-nav-title">{{ page.previous.title }}</span>
+      {% if page.previous.subtitle %}
+      <span class="post-nav-subtitle">
+        {% if page.previous.subtitle_lang %}
+        <span class="subtitle-ja" lang="{{ page.previous.subtitle_lang }}">{{ page.previous.subtitle }}</span>
+        {% else %}
+        <span class="subtitle-ja">{{ page.previous.subtitle }}</span>
+        {% endif %}
+      </span>
+      {% endif %}
+    </a>
+    {% else %}
+    <span class="post-nav-link post-nav-prev post-nav-disabled">
+      <span class="post-nav-label">Previous</span>
+      <span class="post-nav-title">No earlier post</span>
+    </span>
+    {% endif %}
+    {% if page.next %}
+    <a class="post-nav-link post-nav-next" href="{{ page.next.url | relative_url }}">
+      <span class="post-nav-label">Next</span>
+      <span class="post-nav-title">{{ page.next.title }}</span>
+      {% if page.next.subtitle %}
+      <span class="post-nav-subtitle">
+        {% if page.next.subtitle_lang %}
+        <span class="subtitle-ja" lang="{{ page.next.subtitle_lang }}">{{ page.next.subtitle }}</span>
+        {% else %}
+        <span class="subtitle-ja">{{ page.next.subtitle }}</span>
+        {% endif %}
+      </span>
+      {% endif %}
+    </a>
+    {% else %}
+    <span class="post-nav-link post-nav-next post-nav-disabled">
+      <span class="post-nav-label">Next</span>
+      <span class="post-nav-title">No newer post</span>
+    </span>
+    {% endif %}
+  </nav>
+
+  <div class="share-bar" aria-label="Share this post">
+    <a class="share-link" href="https://twitter.com/intent/tweet?url={{ share_url }}&text={{ share_title }}" target="_blank" rel="noopener" aria-label="Share on X">
+      <svg class="share-icon" viewBox="0 0 24 24" aria-hidden="true" focusable="false">
+        <path d="M14.4 10.5 21.7 2h-1.8l-6.4 7.5L8.3 2H2l7.6 11.1L2 22h1.8l6.6-7.7 5.3 7.7H22l-7.6-11.5Zm-3 3.5-.8-1.1-6.1-9h3l4.9 7.1.8 1.1 6.4 9.3h-3l-5.2-7.4Z"/>
+      </svg>
+    </a>
+    <a class="share-link" href="https://www.facebook.com/sharer/sharer.php?u={{ share_url }}" target="_blank" rel="noopener" aria-label="Share on Facebook">
+      <svg class="share-icon" viewBox="0 0 24 24" aria-hidden="true" focusable="false">
+        <path d="M13.5 9.2V7.5c0-.8.5-1 1-1h1.7V4h-2.3c-2.4 0-3.5 1.8-3.5 3.5v1.7H8.7v2.6h1.7V20h2.9v-8.2h2.3l.4-2.6h-2.7Z"/>
+      </svg>
+    </a>
+    <a class="share-link" href="https://www.linkedin.com/sharing/share-offsite/?url={{ share_url }}" target="_blank" rel="noopener" aria-label="Share on LinkedIn">
+      <svg class="share-icon" viewBox="0 0 24 24" aria-hidden="true" focusable="false">
+        <path d="M4.6 8.3h3V20h-3V8.3Zm1.5-4.7a1.7 1.7 0 1 1 0 3.4 1.7 1.7 0 0 1 0-3.4ZM9.6 8.3h2.8v1.6h.1c.4-.8 1.5-1.7 3-1.7 3.2 0 3.8 2.1 3.8 4.8V20h-3v-5.9c0-1.4 0-3.2-2-3.2-2 0-2.3 1.5-2.3 3.1V20h-3V8.3Z"/>
+      </svg>
+    </a>
+    <a class="share-link" href="https://www.reddit.com/submit?url={{ share_url }}&title={{ share_title }}" target="_blank" rel="noopener" aria-label="Share on Reddit">
+      <svg class="share-icon" viewBox="0 0 24 24" aria-hidden="true" focusable="false">
+        <path d="M20 12.5a2 2 0 0 0-3.4-1.4c-1.4-1-3.2-1.6-5.1-1.6l.9-4.1 2.9.6a1.7 1.7 0 1 0 .2-1.3l-3.6-.8-1.2 5.4c-2 .1-3.8.7-5.1 1.7A2 2 0 1 0 4 14.6c0 2.8 3.6 5 8 5s8-2.2 8-5c0-.7-.2-1.3-.5-1.9.3-.3.5-.7.5-1.2Zm-12.4 1.2a1.2 1.2 0 1 1 0-2.4 1.2 1.2 0 0 1 0 2.4Zm8.8 0a1.2 1.2 0 1 1 0-2.4 1.2 1.2 0 0 1 0 2.4Zm-8.4 3c.8.8 2 .8 4 .8s3.2 0 4-.8c.2-.2.5.1.4.3-.8 1.2-2.6 1.8-4.4 1.8s-3.6-.6-4.4-1.8c-.1-.2.2-.5.4-.3Z"/>
+      </svg>
+    </a>
+    <a class="share-link" href="mailto:?subject={{ share_title }}&body={{ share_url }}" aria-label="Share by email">
+      <svg class="share-icon" viewBox="0 0 24 24" aria-hidden="true" focusable="false">
+        <path d="M4 5h16a2 2 0 0 1 2 2v10a2 2 0 0 1-2 2H4a2 2 0 0 1-2-2V7a2 2 0 0 1 2-2Zm0 2 8 5 8-5H4Zm16 10V9l-8 5-8-5v8h16Z"/>
+      </svg>
+    </a>
+  </div>
+
+</div>
+
+<style>
+  {% include font_styles.html %}
+
+  body,
+  .page-content,
+  .category-page {
+    font-family: var(--font-stack);
+    font-weight: 500;
+  }
+  .site-header {
+    display: none !important;
+  }
+  .post-header {
+    display: none;
+  }
+  {% include nav_styles.html %}
+  .category-page {
+    max-width: 900px;
+    margin: 0 auto;
+    padding: 20px 20px 110px;
+    line-height: 1.75;
+  }
+  .poem-content p {
+    white-space: pre-line;
+    margin: 0 0 1em;
+  }
+  .poem-content p:last-child {
+    margin-bottom: 0;
+  }
+  .series-header {
+    margin: 0 0 20px;
+    --title-size: 2.2rem;
+  }
+  .series-title {
+    margin: 0 0 8px;
+    font-weight: 500;
+    font-size: var(--title-size);
+  }
+  .post-subtitle {
+    margin: 0 0 12px;
+    font-size: calc(var(--title-size) * 0.8);
+    color: #666;
+  }
+  .post-subtitle .subtitle-ja {
+    font-weight: 300;
+  }
+  .post-subtitle + .readtime-pill {
+    margin-top: 4px;
+  }
+  .category-description {
+    margin: 0 0 20px;
+    color: #666;
+  }
+  .category-posts {
+    list-style: none;
+    padding: 0;
+    margin: 0;
+  }
+  .category-post {
+    display: flex;
+    justify-content: space-between;
+    gap: 16px;
+    padding: 10px 0;
+    border-bottom: 1px solid #e3e3e3;
+  }
+  .category-post a {
+    text-decoration: none;
+  }
+  .category-post-date {
+    color: #888;
+    white-space: nowrap;
+    font-size: 0.9em;
+  }
+  .category-empty {
+    color: #888;
+    font-style: italic;
+  }
+  .share-bar {
+    position: fixed;
+    left: 50%;
+    bottom: 36px;
+    transform: translateX(-50%);
+    display: inline-flex;
+    flex-wrap: wrap;
+    gap: 8px;
+    align-items: center;
+    padding: 10px 14px;
+    border: 1px solid rgba(0, 0, 0, 0.12);
+    border-radius: 999px;
+    background: rgba(255, 255, 255, 0.95);
+    box-shadow: 0 6px 18px rgba(0, 0, 0, 0.12);
+    z-index: 1000;
+  }
+  .readtime-pill {
+    margin: 8px 0 20px;
+    display: inline-flex;
+    align-items: center;
+    gap: 8px;
+    padding: 6px 12px;
+    border-radius: 999px;
+    border: 1px solid #e0e0e0;
+    background: #f7f7f7;
+  }
+  .readtime-text {
+    font-size: 0.9em;
+    color: #666;
+    display: inline-flex;
+    align-items: center;
+    gap: 6px;
+  }
+  .readtime-icon {
+    width: 16px;
+    height: 16px;
+    fill: #666;
+  }
+  .post-nav {
+    margin-top: 32px;
+    display: flex;
+    justify-content: space-between;
+    gap: 16px;
+  }
+  .post-nav-link {
+    flex: 1;
+    border: 1px solid #e3e3e3;
+    border-radius: 12px;
+    padding: 12px 14px;
+    text-decoration: none;
+    color: #1f2a30;
+    background: #ffffff;
+    display: flex;
+    flex-direction: column;
+    gap: 6px;
+    min-width: 0;
+  }
+  .post-nav-prev {
+    text-align: left;
+  }
+  .post-nav-next {
+    text-align: right;
+    align-items: flex-end;
+  }
+  .post-nav-label {
+    text-transform: uppercase;
+    letter-spacing: 0.2em;
+    font-size: 0.7rem;
+    color: #6a6a6a;
+  }
+  .post-nav-title {
+    font-size: 0.98em;
+    font-weight: 500;
+  }
+  .post-nav-subtitle {
+    font-size: 0.98em;
+    color: #6a6a6a;
+    line-height: 1.2;
+  }
+  .post-nav-subtitle .subtitle-ja {
+    font-weight: 300;
+  }
+  .post-nav-link:hover {
+    border-color: #1f2a30;
+  }
+  .post-nav-disabled {
+    opacity: 0.4;
+    pointer-events: none;
+  }
+  @media (max-width: 640px) {
+    .post-nav {
+      flex-direction: column;
+    }
+    .post-nav-next {
+      align-items: flex-start;
+      text-align: left;
+    }
+  }
+  .share-link {
+    text-decoration: none;
+    border: 1px solid rgba(0, 0, 0, 0.12);
+    border-radius: 999px;
+    width: 36px;
+    height: 36px;
+    display: inline-flex;
+    align-items: center;
+    justify-content: center;
+    color: #111111;
+    background: transparent;
+  }
+  .share-link:hover {
+    border-color: rgba(0, 0, 0, 0.4);
+  }
+  .share-icon {
+    width: 18px;
+    height: 18px;
+    fill: currentColor;
+  }
+</style>

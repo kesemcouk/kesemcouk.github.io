@@ -1,0 +1,43 @@
+<style>
+  *,
+  *::before,
+  *::after {
+    -webkit-touch-callout: none;
+    -webkit-user-select: none;
+    -moz-user-select: none;
+    -ms-user-select: none;
+    user-select: none;
+  }
+
+  img,
+  a {
+    -webkit-user-drag: none;
+  }
+</style>
+
+<script>
+  (function () {
+    function blockEvent(event) {
+      event.preventDefault();
+    }
+
+    ["copy", "cut", "paste", "contextmenu", "selectstart", "dragstart"].forEach(function (eventName) {
+      document.addEventListener(eventName, blockEvent, true);
+    });
+
+    document.addEventListener(
+      "keydown",
+      function (event) {
+        var key = (event.key || "").toLowerCase();
+        var blocked = ["a", "c", "x", "v", "s", "u", "p"];
+        if ((event.ctrlKey || event.metaKey) && blocked.indexOf(key) !== -1) {
+          event.preventDefault();
+        }
+        if (event.key === "F12") {
+          event.preventDefault();
+        }
+      },
+      true
+    );
+  })();
+</script>
