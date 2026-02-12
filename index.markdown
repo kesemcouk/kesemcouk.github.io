@@ -12,10 +12,6 @@ slideshow_images:
   - https://res.cloudinary.com/det9qfsir/image/upload/v1769360071/website_images/2024/04/IMG_3696.jpg
 ---
 
-<h2 class="landing-title">Konnichiwa. I'm Kesem, a writer who lives in Japan.</h2>
+<h2 class="landing-title">Konnichiwa. I'm Kesem, an artist who lives in Japan.</h2>
 
-Words have been my oxygen since I began writing fiction at 8 years old. Writing is the reason I live, the thing that keeps me going, and a basic human need.
-
-English isn’t my first language, and I always write in a rush, so apologies for any mistakes.
-
-The following are posts that shed light on my psyche.
+I write stories, travelogues, comedy, poetry, and songs. 
