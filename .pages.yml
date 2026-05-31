@@ -1,0 +1,204 @@
+media:
+  - name: site_images
+    label: Site images
+    input: media
+    output: /media
+    categories: [image]
+    extensions: [jpg, jpeg, png, gif, webp, svg]
+    rename: safe
+
+settings:
+  content:
+    merge: true
+  commit:
+    templates:
+      create: "Create {path} (via Pages CMS)"
+      update: "Update {path} (via Pages CMS)"
+      delete: "Delete {path} (via Pages CMS)"
+      rename: "Rename {oldPath} to {newPath} (via Pages CMS)"
+
+content:
+  - name: homepage
+    label: Homepage
+    type: file
+    path: index.markdown
+    format: yaml-frontmatter
+    operations:
+      create: false
+      rename: false
+      delete: false
+    fields:
+      - name: layout
+        type: string
+        hidden: true
+      - name: bio_picture
+        label: Bio picture URL
+        type: string
+        description: "Use an existing Cloudinary URL or a new /media/... path after uploading an image."
+      - name: slideshow_images
+        label: Slideshow image URLs
+        type: string
+        list: true
+        description: "Use existing Cloudinary URLs or new /media/... paths after uploading images."
+      - name: body
+        label: Body
+        type: rich-text
+        options:
+          format: markdown
+          media: site_images
+          switcher: true
+
+  - name: pages
+    label: Pages
+    type: collection
+    path: _pages
+    format: yaml-frontmatter
+    filename:
+      template: "{title}.md"
+      field: create
+    operations:
+      delete: false
+    view:
+      fields: [title, subtitle, layout, category]
+      primary: title
+      sort: [title, date, layout, category]
+      search: [title, subtitle, category, body]
+      default:
+        sort: title
+        order: asc
+    fields:
+      - name: layout
+        label: Layout
+        type: select
+        required: true
+        options:
+          values:
+            - name: page
+              label: Standard page
+            - name: series
+              label: Series page
+            - name: category
+              label: Category page
+            - name: journals
+              label: Journals page
+      - name: title
+        label: Title
+        type: string
+        required: true
+      - name: subtitle
+        label: Subtitle
+        type: string
+      - name: subtitle_lang
+        label: Subtitle language code
+        type: string
+      - name: date
+        label: Date
+        type: date
+      - name: permalink
+        label: Permalink
+        type: string
+      - name: category
+        label: Category
+        type: string
+      - name: series_type
+        label: Series type
+        type: select
+        options:
+          values:
+            - name: journals
+              label: Journals
+            - name: travel-logs
+              label: Travel logs
+      - name: coverImage
+        label: Cover image filename or URL
+        type: string
+        description: "Existing values may be filenames or Cloudinary URLs. New uploaded images can use /media/filename."
+      - name: bio_picture
+        label: Bio picture URL
+        type: string
+        description: "Use an existing Cloudinary URL or a new /media/... path after uploading an image."
+      - name: journals
+        label: Journal cards
+        type: object
+        list:
+          collapsible:
+            collapsed: true
+            summary: "{title}"
+        fields:
+          - name: photo_url
+            label: Photo URL
+            type: string
+            description: "Use an existing Cloudinary URL or a new /media/... path after uploading an image."
+          - name: title
+            label: Title
+            type: string
+          - name: subtitle
+            label: Subtitle
+            type: text
+          - name: date_range
+            label: Date range
+            type: string
+          - name: permalink
+            label: Permalink
+            type: string
+      - name: body
+        label: Body
+        type: rich-text
+        options:
+          format: markdown
+          media: site_images
+          switcher: true
+
+  - name: posts
+    label: Posts
+    type: collection
+    path: _posts
+    format: yaml-frontmatter
+    filename:
+      template: "{year}-{month}-{day}-{title}.md"
+      field: create
+    operations:
+      delete: false
+    view:
+      fields: [title, subtitle, date, categories]
+      primary: title
+      sort: [date, title]
+      search: [title, subtitle, categories, tags, body]
+      default:
+        sort: date
+        order: desc
+    fields:
+      - name: title
+        label: Title
+        type: string
+        required: true
+      - name: subtitle
+        label: Subtitle
+        type: string
+      - name: subtitle_lang
+        label: Subtitle language code
+        type: string
+      - name: date
+        label: Date
+        type: date
+        required: true
+      - name: categories
+        label: Categories
+        type: string
+        list: true
+        required: true
+      - name: tags
+        label: Tags
+        type: string
+        list: true
+      - name: coverImage
+        label: Cover image filename or URL
+        type: string
+        description: "Existing values may be filenames or Cloudinary URLs. New uploaded images can use /media/filename."
+      - name: body
+        label: Body
+        type: rich-text
+        options:
+          format: markdown
+          media: site_images
+          switcher: true
