@@ -40,11 +40,11 @@ The mountain was almost completely orange at one point. Some leaves had begun to
 
 We strolled around the summit, enjoying the breathtaking view of orange mountains and, in the horizon, the sea west of Akita. He’d seen kouyou in upstate New York, but nothing like this.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361177/website_images/2023/11/img_4344-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266101/img_4344-768x1024_qaqbvw.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4346-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361097/website_images/2023/11/img_4347-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266101/img_4347-768x1024_j3uf2e.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/10/img_4351.jpg)
 
@@ -338,7 +338,7 @@ Bandai Azuma Sky Line route, from Fukushima’s city center to the mountain, was
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4455-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361154/website_images/2023/11/img_4466-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266573/img_4466-1_uxc81u.jpg)
 
 I arrived at Jododaira visitor center, which was quite congested and busy. Kouyou led way to a barren landscape, with more gravel and ashes than leaves. This was a dormant volcano, after all.
 
@@ -352,9 +352,9 @@ In all honesty, I was surprised there was no warning at the entrance regarding t
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4473-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361184/website_images/2023/11/img_4480-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266569/img_4480-1_enitng.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360999/website_images/2023/11/img_4490-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266565/img_4490-1_kevmw4.jpg)
 
 ### Mt Issaikyo
 
@@ -376,7 +376,7 @@ In the end, instead of five hours, the whole hiking trip took me 3.5. The exact 
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4554-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361155/website_images/2023/11/img_4562-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266512/img_4562-1_ls4f3p.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4570-1.jpg)
 
@@ -408,7 +408,7 @@ All of this was in good order, apart from the fact that ne-cafés always played 
 
 Moreover, this branch didn’t feature mat rooms, but rather booths with reclining, padded chairs.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360985/website_images/2023/11/img_4594-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266535/img_4594-1_yxpsfm.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4595-1.jpg)
 

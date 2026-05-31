@@ -47,7 +47,7 @@ In this chapter, I...
 
 This morning, before leaving Taichung, I drank boba tea at the café that was reputed to have invented it. It was my most expensive boba tea in Taiwan. The tapioca balls were smaller than usual, which made them easier to suck. Then I savored the fried water chestnuts I’d bought yesterday.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359782/website_images/2024/03/IMG_0529-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266039/IMG_0529-768x1024_fdfd1c.jpg)
 
 ### Back to Taipei
 
@@ -331,9 +331,9 @@ In the evening, we roamed the street food alleys of Ximen in search of dinner. A
 
 As I ate a stuffed potato, Jeong-Ho became the first person to correctly identify my Myers–Briggs personality type.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359803/website_images/2024/03/IMG_0577-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266060/IMG_0577-768x1024_qe3dz8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360002/website_images/2024/03/IMG_0578-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266061/IMG_0578-768x1024_cyzrvw.jpg)
 
 ### The Red House
 
@@ -375,13 +375,13 @@ I ambled around birds and flowers, feeling relaxed. Dozens of great egrets were 
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0581-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359822/website_images/2024/03/IMG_0582-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266086/IMG_0582-768x1024_yfock1.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0584-768x1024.jpeg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0588-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359739/website_images/2024/03/IMG_0593-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266061/IMG_0593-768x1024_nzbzkd.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0596-768x1024.jpeg)
 

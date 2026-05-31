@@ -25,7 +25,7 @@ About the dream from the last chapter. Now its meaning is clear to me, but back 
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361856/website_images/2023/01/Chapter-3-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266013/Chapter-3-picture-1-768x1024_y4kusx.jpg)
     
     <figcaption>
     
@@ -37,7 +37,7 @@ About the dream from the last chapter. Now its meaning is clear to me, but back 
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361932/website_images/2023/01/Chapter-3-picture-2-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266012/Chapter-3-picture-2-1-768x1024_wbgwrs.jpg)
     
     <figcaption>
     
@@ -49,7 +49,7 @@ About the dream from the last chapter. Now its meaning is clear to me, but back 
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361831/website_images/2023/01/Chapter-3-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266014/Chapter-3-picture-3-768x1024_w71bmw.jpg)
     
     <figcaption>
     
@@ -61,7 +61,7 @@ About the dream from the last chapter. Now its meaning is clear to me, but back 
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361829/website_images/2023/01/Chapter-3-picture-4-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266015/Chapter-3-picture-4-768x1024_of6vwu.jpg)
     
     <figcaption>
     
@@ -73,7 +73,7 @@ About the dream from the last chapter. Now its meaning is clear to me, but back 
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361787/website_images/2023/01/Chapter-3-picture-5-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266015/Chapter-3-picture-5-768x1024_uxvclv.jpg)
     
     <figcaption>
     

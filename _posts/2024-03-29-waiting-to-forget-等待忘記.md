@@ -99,7 +99,7 @@ Once I found their shop, I wanted everything. Quirky, gypsy-like owl bags, brace
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0230-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359671/website_images/2024/03/IMG_0240-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266101/IMG_0240-768x1024_whhoxg.jpg)
 
 ### Wenwu Temple
 
@@ -337,17 +337,17 @@ Today I rented a YouBike and cycled to Rainbow Village on the western outskirts 
 
 The village was as colorful as it was tiny. A nice, tribal-eqsue spot for picture-taking. Not good on a Sunday morning.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359854/website_images/2024/03/IMG_0321-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266029/IMG_0321-768x1024_cp9mq6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359709/website_images/2024/03/IMG_0330-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266029/IMG_0330-768x1024_ot9qt9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359718/website_images/2024/03/IMG_0334-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266047/IMG_0334-768x1024_hgfhrj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359994/website_images/2024/03/IMG_0338-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266048/IMG_0338-768x1024_nyxjsj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359613/website_images/2024/03/IMG_0339-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266080/IMG_0339-768x1024_tfvfgm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359735/website_images/2024/03/IMG_0340-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266048/IMG_0340-768x1024_bjkkl6.jpg)
 
 ### Miyahara
 
@@ -355,11 +355,11 @@ At midday, I took an hour-long bus back to central Taichung. People were sitting
 
 I received a sundae waffle filled with a Tieh Kwan Ying and osmanthus ice cream, very tea-like in flavor; a rose and mint ice cream, herbal and refreshing; a salted caramel ice cream with a caramel sauce; topped with strawberries, sweet and sour pineapple cakes, and a butterfly waffle.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360033/website_images/2024/03/IMG_0348-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266029/IMG_0348-768x1024_ljpref.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359782/website_images/2024/03/IMG_0350-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266049/IMG_0350-768x1024_wd3obq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359913/website_images/2024/03/IMG_0352-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266029/IMG_0352-768x1024_xrub5c.jpg)
 
 The rest of the day was spent writing in bed.
 
@@ -441,11 +441,11 @@ After yesterday’s late-night conversation, I started my day late with a visit 
 
 Nine months in Japan hadn’t prompted me to visit Kamakura, owing to my complete lack of interest in big Buddhas. What a waste of time.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359739/website_images/2024/03/IMG_0357-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266031/IMG_0357-768x1024_yv7tts.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359653/website_images/2024/03/IMG_0359-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266031/IMG_0359-768x1024_mbxy8e.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359919/website_images/2024/03/IMG_0356-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266030/IMG_0356-768x1024_jwxbsj.jpg)
 
 ### Nantian Temple
 
@@ -457,29 +457,29 @@ The uppermost floor was even darker and scarier. A narrow, pitch-black corridor 
 
 What a unique temple. As a child, I might have believed that hell was real, and that I ought to be a good worshipper. It immediately tied Wenwu as my favorite temple on this island.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359620/website_images/2024/03/IMG_0363-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266050/IMG_0363-768x1024_ivstpc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359657/website_images/2024/03/IMG_0364-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266031/IMG_0364-768x1024_ko1oel.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359636/website_images/2024/03/IMG_0367-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266051/IMG_0367-768x1024_ss5c0o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359824/website_images/2024/03/IMG_0368-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266032/IMG_0368-768x1024_s01xij.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359934/website_images/2024/03/IMG_0378-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266033/IMG_0378-768x1024_ymmvpf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359619/website_images/2024/03/IMG_0374-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266032/IMG_0374-768x1024_ibohne.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359903/website_images/2024/03/IMG_0375-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266033/IMG_0375-770x1024_rxeleb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359971/website_images/2024/03/IMG_0386-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266033/IMG_0386-768x1024_fajvp1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359634/website_images/2024/03/IMG_0370-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266032/IMG_0370-768x1024_bpqgwy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359995/website_images/2024/03/IMG_0385-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266033/IMG_0385-768x1024_fozv4f.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359882/website_images/2024/03/IMG_0388-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266054/IMG_0388-768x1024_znumvs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359679/website_images/2024/03/IMG_0383-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266053/IMG_0383-768x1024_qtksya.jpg)
 
 ### A Date with My Taiwanese Counterpart
 
@@ -577,13 +577,13 @@ We actually passed a blood sugar test station, since pilgrims were consuming so 
 
 I almost hadn’t come, after feeling too tired and hungry in the morning to do anything. Today was supposed to be spent in bed.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360015/website_images/2024/03/IMG_0415-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266034/IMG_0415-768x1024_xwgx69.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359899/website_images/2024/03/IMG_0421-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266034/IMG_0421-768x1024_ietzap.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0404-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359892/website_images/2024/03/IMG_0425-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266035/IMG_0425-768x1024_inxsze.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0407-768x1024.jpeg)
 
@@ -591,9 +591,9 @@ I almost hadn’t come, after feeling too tired and hungry in the morning to do 
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0401-770x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359803/website_images/2024/03/IMG_0427-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266057/IMG_0427-768x1024_txaeas.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359670/website_images/2024/03/IMG_0439-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266035/IMG_0439-768x1024_h3yktf.jpg)
 
 As we continued to walk – I kept postponing the hour when I'd leave – Dominico recounted to me how he’d slept at a temple with the pilgrimage. What a uniquely communal experience. I rejoiced at my coming here, yet lamented my inability to extend my participation. Time was the only deciding factor: one could walk for six to twelve days (depending on the year) without spending a single dime on food, accommodation, and drinks.
 
@@ -609,13 +609,13 @@ At 18:30, after eighteen kilometers, I left begrudgingly. I wanted to sleep at a
 
 Baishatun was one of my most unique experiences on this trip. It posed yet another reason for returning to this country. I could’ve been well-fed for a week simply by collecting every offering after one day of walking. Or for a whole month, after completing the full journey.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359625/website_images/2024/03/IMG_0453-576x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266400/IMG_0453-576x1024_xbdy2c.png)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359854/website_images/2024/03/IMG_0426-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266034/IMG_0426-768x1024_qwg6pt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359846/website_images/2024/03/IMG_0445-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266035/IMG_0445-768x1024_alsrsm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359695/website_images/2024/03/IMG_0452-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266058/IMG_0452-1024x768_y8oxf7.jpg)
 
 ### Maple Garden
 
@@ -623,9 +623,9 @@ I took the train to Taichung (as teeming as after a Japanese festival) and met J
 
 We shared my loot and talked softly. I felt a bit disappointed by my departure from the pilgrims. But when he cracked a small and swift smile at me for the first time – it felt as triumphant as parading from morning to evening.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359731/website_images/2024/03/IMG_0447-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266036/IMG_0447-768x1024_xs77dd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359724/website_images/2024/03/IMG_0450-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266036/IMG_0450-768x1024_xufzmp.jpg)
 
 **Today's highlights:** Baishatun Mazu pilgrimage; every single thing I ate there; the Maple Garden.
 
@@ -655,19 +655,19 @@ She picked me up from Fengyuen station with her parents. This was her hometown, 
 
 We ate lunch at an outlet mall. I felt a bit awkward at first. Her parents spoke a select few words in Japanese, while she spoke Japanese, rather than English. I could’ve met Raven again on my last day in this city, but had already promised Uma today.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359786/website_images/2024/03/CBBE6FC6-D13C-46D2-A330-61FC0F47B1DC-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266007/CBBE6FC6-D13C-46D2-A330-61FC0F47B1DC-1024x576_pycm7g.jpg)
 
 After lunch, we watched the bullet train from an observation deck so famous for it, that there was a bulletin board with train times; tasted outlandish wine at a winery (honey, cranberry, mulberry, onion, enzyme); and crossed a former railway bridge and tunnel.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359639/website_images/2024/03/IMG_0460-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266104/IMG_0460-768x1024_ssziz0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359746/website_images/2024/03/507DFAD5-3C51-4E43-9009-3CA040C636AF-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266002/507DFAD5-3C51-4E43-9009-3CA040C636AF-576x1024_ygxgoc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359664/website_images/2024/03/IMG_0463-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266058/IMG_0463-768x1024_y2whc0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359899/website_images/2024/03/EE222B05-EF26-4A62-B662-53566056AA3F-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266035/EE222B05-EF26-4A62-B662-53566056AA3F-576x1024_bgqfev.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359629/website_images/2024/03/IMG_0464-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266037/IMG_0464-768x1024_d8xxgu.jpg)
 
 ### Gaomei Wetlands
 
@@ -675,11 +675,11 @@ In the afternoon, her parents returned home, while we drove to Gaomei wetlands, 
 
 It was one of the windiest places I’d inhabited. The wooden platform that stretched into the wetland was so blustery, that my ears began to hurt. I almost fell to the wetland. The wind created ripples on the sand and narrow river. The view was pretty, with wind turbines revolving at full speed. Yet we couldn’t stay a moment longer there, let alone wait for sunset.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360045/website_images/2024/03/IMG_0472-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266037/IMG_0472-768x1024_z1xxxu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359888/website_images/2024/03/E69EA0A1-4E31-46DA-ADDC-C72D90E51750-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266013/E69EA0A1-4E31-46DA-ADDC-C72D90E51750-576x1024_j2atav.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359627/website_images/2024/03/IMG_0473-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266016/IMG_0473-768x1024_b1m9hr.jpg)
 
 ### Miaodong Night Market
 
@@ -721,15 +721,15 @@ Taiwan offered a greater variety in culture, nature, and cuisine. More experienc
 
 I knew I could never live here during the summer, with spiders as big as in Australia. As far as I was concerned, I’d come here at the best time: winter, New Year’s, more festivities than tourists.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359941/website_images/2024/03/IMG_0475-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266038/IMG_0475-768x1024_uxxziy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359959/website_images/2024/03/9B0C81BE-9850-4002-8E94-B64E6B3356D9-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266001/9B0C81BE-9850-4002-8E94-B64E6B3356D9-576x1024_r2smck.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359815/website_images/2024/03/IMG_0478-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266038/IMG_0478-768x1024_tghtws.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359782/website_images/2024/03/IMG_0479-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266038/IMG_0479-768x1024_syzusz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359686/website_images/2024/03/IMG_0480-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266038/IMG_0480-768x1024_rfy6fe.jpg)
 
 Before I went to sleep, Teddy texted me.
 

@@ -81,17 +81,17 @@ I left Asakusa near 13:00. Someday, with more budget, I’d spend a whole day he
 
 A month and three days ago, I’d landed in Japan, and spent a perfect day in Asakusa with the German girl. Now, everything felt shittier. Less money, fewer friends, less romance.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361285/website_images/2023/09/img_2600.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266496/img_2600_ofziu3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361310/website_images/2023/09/img_2601.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266528/img_2601_d4e5rc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361280/website_images/2023/09/img_2602.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266523/img_2602_opae9h.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361250/website_images/2023/09/img_2603.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266515/img_2603_yrt68j.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361313/website_images/2023/09/img_2605.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266540/img_2605_simdqr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361364/website_images/2023/09/img_2607.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266545/img_2607_gadmrq.jpg)
 
 ### Hokusai Museum
 
@@ -101,11 +101,11 @@ I learned Katsushika Hokusai (1760-1849) had spent most of his life in Sumida. H
 
 There were ukiyo-e woodblock prints and nishiki-e (multicolored ukiyo-e). All replicas. I wasn’t sure if the originals had survived. The Great Wave, for example, was not being displayed to the public. The original prints were too fragile for that.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361632/website_images/2023/09/img_2609.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266512/img_2609_tcu7k6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361336/website_images/2023/09/img_2610.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266503/img_2610_zmwu0u.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361313/website_images/2023/09/img_2611.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266520/img_2611_xaukfa.jpg)
 
 ### Tokyo Museum of Contemporary Art
 
@@ -131,17 +131,17 @@ Mr and Mrs Clark and Percy (1070-1971): I vividly recalled my medieval art profe
 
 The exhibition ended with large-scale iPad paintings of the changing seasons.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361285/website_images/2023/09/img_2614.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266493/img_2614_z1xxo1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361311/website_images/2023/09/img_2615.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266499/img_2615_qpbzj8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361285/website_images/2023/09/img_2616.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266505/img_2616_gl9scf.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/09/img_2618-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361399/website_images/2023/09/img_2619-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266086/img_2619-1024x768_e2w1iy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361505/website_images/2023/09/img_2620-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266061/img_2620-768x1024_jm7tev.jpg)
 
 Third: a temporary exhibition aimed at teenagers, who, as the museum put it, often experienced difficulties in relationships with friends or family. The exhibition proposed that, “in order to respect both oneself and others, it’s okay not to empathize.”
 
@@ -267,11 +267,11 @@ A Turkish girl who worked at the mosque spoke to us in perfect Japanese. I divul
 
 We walked to the train station, where we said goodbye. I continued to Shinjuku, to go out to ni-chome at night.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361501/website_images/2023/09/img_2642.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266542/img_2642_cnbzn8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361543/website_images/2023/09/img_2646.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266500/img_2646_forffu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361589/website_images/2023/09/img_2645.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266561/img_2645_rrwk2c.jpg)
 
 ### Shinjuku Ni-chome
 
@@ -333,9 +333,9 @@ At 1:00, I left the club. The drag queen hadn’t showed up.
 
 I spent the rest of the night hanging out with a guy from California. Ironic, how tonight’s best interactions were with Americans.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361367/website_images/2023/09/img_2648.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266498/img_2648_bro0k8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361393/website_images/2023/09/img_2649.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266498/img_2649_nn2aij.jpg)
 
 **Today's highlights:** curry with Saki; Islamic architecture in Tokyo; browsing Middle Eastern delicacies.
 

@@ -21,7 +21,7 @@ In chapter 5, I...
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361929/website_images/2023/01/Chapter-5-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266017/Chapter-5-picture-1-768x1024_dnmcxw.jpg)
     
     <figcaption>
     
@@ -33,7 +33,7 @@ In chapter 5, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361762/website_images/2023/01/Chapter-5-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266017/Chapter-5-picture-2-768x1024_otq9ie.jpg)
     
     <figcaption>
     
@@ -45,7 +45,7 @@ In chapter 5, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361736/website_images/2023/01/Chapter-5-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266018/Chapter-5-picture-3-768x1024_kgkjjw.jpg)
     
     <figcaption>
     

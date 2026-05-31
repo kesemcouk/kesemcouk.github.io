@@ -45,7 +45,7 @@ coverImage: "IMG_1134.jpeg"
 
 Fourteen months later, my trip is over.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360196/website_images/2024/05/Japan-South-Korea-and-Taiwan-918x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266482/Japan-South-Korea-and-Taiwan-918x1024_tagvng.png)
 
 The fact that it extended again and again from the original three months was the least surprising development. I've lived a lifetime in a little over a year, where every day brought with it a new experience, a new achievement, or a new low. Not knowing where I would sleep tonight, who I would meet, what I would do - it straddled the line between daunting and exhilarating, until it taught me how to live in the present.
 
@@ -53,7 +53,7 @@ This growth culminated in my discovery of romantic love.
 
 It is time to organize everything that happened to me, and usher in a new chapter of this blog. The original title, subtitle, and layout are now retired.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360058/website_images/2024/04/Original-blog-title-until-18-April-2024-1024x736.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266483/Original-blog-title-until-18-April-2024-1024x736_c4zav1.png)
 
 ## 22 April 2024
 

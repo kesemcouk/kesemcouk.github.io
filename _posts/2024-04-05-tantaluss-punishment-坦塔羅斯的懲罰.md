@@ -66,7 +66,7 @@ Despite all the noise and picturesque scenery, touch was my sense most activated
 
 The sun set. The park grew cosy and breezy. This weather felt to me as perfect as this moment.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360102/website_images/2024/04/IMG_0767-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266042/IMG_0767-768x1024_elrrj9.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/04/IMG_0769-768x1024.jpeg)
 
@@ -222,11 +222,11 @@ Dessert was shaved ice from across the street. I picked the most Taiwanese varia
 
 Then we found a shop selling Ximen’s famous penis cakes. As full as I was, I couldn’t refuse this. Yet another reason to love Ximen.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360118/website_images/2024/04/IMG_0807-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266068/IMG_0807-768x1024_bbvevt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360070/website_images/2024/04/IMG_0808-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266042/IMG_0808-768x1024_fljxce.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360098/website_images/2024/04/IMG_1841-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266081/IMG_1841-768x1024_jkjqkp.jpg)
 
 He helped me buy clothes for my family at Uniqlo. This was quite the ordeal. Even when it carried on and on, he stuck by me.
 
@@ -256,7 +256,7 @@ Then I took the MRT to Nanshijao station in New Taipei City, where I returned wi
 
 They enjoyed my presence so much, and treated me to so much food, and gifted me hot spring bath powders imported from Japan, and gave a doggy bag to share with the volunteers, that even when relying on translation apps, I reveled in their friendship.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360094/website_images/2024/04/IMG_0812-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266068/IMG_0812-768x1024_dinsvh.jpg)
 
 **Today’s highlight:** dinner with the Taiwanese couple.
 
@@ -294,21 +294,21 @@ Lush green cliffs and vivid blue water complemented this otherworldly scenery. S
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/04/IMG_1954-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360123/website_images/2024/04/IMG_0834-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266068/IMG_0834-768x1024_xbb04q.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/04/IMG_0897-768x1024.jpeg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/04/IMG_0836-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360138/website_images/2024/04/IMG_0900-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266042/IMG_0900-768x1024_p8hfo8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360095/website_images/2024/04/IMG_2044-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266103/IMG_2044-768x1024_w66pzt.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/04/IMG_0827-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360065/website_images/2024/04/IMG_1978-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266050/IMG_1978-768x1024_efhqed.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360111/website_images/2024/04/IMG_1990-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266050/IMG_1990-768x1024_mixpjg.jpg)
 
 It was a scorching summer day. Beads of sweat were dripping down my torso and eye sockets. My shirt grew damp. Korean tour groups outnumbered Taiwanese locals so much that I felt déjà vu to summer in Korea, with mossy stones in Jeju Island and shirts as wet as bathing suits.
 
@@ -338,7 +338,7 @@ In the afternoon, we walked to the nearby Camel’s Hump Rock, a seaside cliff w
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/04/IMG_0912-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360100/website_images/2024/04/IMG_2115-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266051/IMG_2115-768x1024_pxjhjb.jpg)
 
 ### Wanli UFO Village
 

@@ -65,23 +65,23 @@ So, like me, she wrote prose, and wanted to do screenplays as well. She’d stud
 
 We started off by renting bikes and cycling around Han River. The scenery was beautiful, with a view of the Lotte Tower, a riverside temple, a 7/11 ship; a police station with a drying rack full of swimsuits; a metro station that looked like an outer space station. We returned the bikes near Seoul Forest, which was really more of a park. Cute deer, but overall quite underwhelming, in my opinion.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364869/website_images/2023/06/img_8221.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266506/img_8221_kuk9du.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364771/website_images/2023/06/img_8216.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266522/img_8216_cwzlhr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364850/website_images/2023/06/img_8214.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266524/img_8214_yxrfyt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364766/website_images/2023/06/img_8217.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266524/img_8217_y5pm1q.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364791/website_images/2023/06/img_8215.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266512/img_8215_gm57ur.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364916/website_images/2023/06/img_8223.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266502/img_8223_iqfbdt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364851/website_images/2023/06/img_8229.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266545/img_8229_yhcrit.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364884/website_images/2023/06/img_8231.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266509/img_8231_afyqtr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364868/website_images/2023/06/img_8230.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266587/img_8230_ononnz.jpg)
 
 ### Seong-su
 
@@ -111,21 +111,21 @@ For dessert, we ate a brown cheese croissle, a local mix between a croissant and
 
 “We don’t use Japanese because of the occupation,” she explained to me at some point. “They won’t speak Japanese on the news. If there’s a soccer game against Japan, we must win. It’s a competition. But we’re fine with Japan now.” She’d learned Japanese in school, yet forgotten most of it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364830/website_images/2023/06/img_8233.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266552/img_8233_mcclss.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364874/website_images/2023/06/img_8235.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266522/img_8235_yxcqmf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364701/website_images/2023/06/img_8239.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266514/img_8239_domzg1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364933/website_images/2023/06/img_8241.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266508/img_8241_d9uhbv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364945/website_images/2023/06/img_8242.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266532/img_8242_ladppf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364915/website_images/2023/06/img_8244.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266525/img_8244_cfhsno.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364980/website_images/2023/06/img_2032.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266528/img_2032_zioqyi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364918/website_images/2023/06/img_2035-683x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266051/img_2035-683x1024_z5vj0k.jpg)
 
 ### Bongeun-sa Temple
 
@@ -141,23 +141,23 @@ The halls were painted in dancheong, the same style as the palaces, which was ni
 
 In the end, twenty minutes at the temple were enough. I thought it would close soon, but I was wrong. It was probably open 24h.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364920/website_images/2023/06/img_8245.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266562/img_8245_biixkh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364920/website_images/2023/06/img_8250.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266551/img_8250_eneuem.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364726/website_images/2023/06/img_8263.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266550/img_8263_yhxtlc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364921/website_images/2023/06/img_8251.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266570/img_8251_zeaqmh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364904/website_images/2023/06/img_8253.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266524/img_8253_lmjl7k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361974/website_images/2023/06/img_8260.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266567/img_8260_ag8hsg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361940/website_images/2023/06/img_8267.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266504/img_8267_xjjmla.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364936/website_images/2023/06/img_8254.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266585/img_8254_jte76x.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361975/website_images/2023/06/img_8261.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266564/img_8261_pcbrux.jpg)
 
 ### Gangnam
 
@@ -167,11 +167,11 @@ Gangnam was mostly a business district. Insane skyscrapers. A bunch of American 
 
 They had a free, temporary exhibition about happiness. One room, very small, so ten minutes. A bit disappointing, but they were happy to have a visitor.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361940/website_images/2023/06/img_8267.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266504/img_8267_xjjmla.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361965/website_images/2023/06/img_8270.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266514/img_8270_cd2swq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361939/website_images/2023/06/img_8273.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266499/img_8273_lhzeld.jpg)
 
 ### Han River... Again
 
@@ -199,9 +199,9 @@ Back at her apartment, it was 18 degrees outside, and 33 inside. I booked a host
 
 I fell asleep grateful for my current sleeping arrangement, for three good couchsurfing experiences in a row, and for making another friend.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364917/website_images/2023/06/img_8278.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266504/img_8278_vlkvmd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364915/website_images/2023/06/img_8293.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266518/img_8293_saotxe.jpg)
 
 **Today's highlights:** cycling around Han River; lunch with my host; the colorful lanterns at Bongeun-sa temple; Han River at night; and sleeping on the kitchen floor.
 
@@ -241,7 +241,7 @@ We had breakfast at her apartment, during which she surprised me with hummus she
 
 I learned more and more from her. “Convenience is important to Koreans,” she said. “Bbali bbal means fast to fast. We work fast, and shop fast, the trains are fast, cooking is fast, internet is fast… Korea is fast.”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364955/website_images/2023/06/img_8294.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266503/img_8294_ancrgy.jpg)
 
 I left her apartment at 10:00 and checked into my hostel for the night. Some girls inside the metro were wearing rollers on their bangs. Koreans might not care as much about Japanese, it occurred to me. The atmosphere in this country was a bit less restrained.
 
@@ -269,13 +269,13 @@ There were guard posts and artillery pavilions also in dancheong. Cannons and wa
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/06/img_8300.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364680/website_images/2023/06/img_8302.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266509/img_8302_u8pibo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361957/website_images/2023/06/img_8307.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266539/img_8307_nitg3a.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361954/website_images/2023/06/img_8305.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266528/img_8305_xwjllp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769362002/website_images/2023/06/img_8312.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266494/img_8312_kxbaoi.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/06/img_8315.jpg)
 
@@ -297,15 +297,15 @@ I started back to the fortress toward Buksumun, but decided on the way there tha
 
 Suwon was my first letdown in South Korea. I’d recommend it only to fans of meat.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364727/website_images/2023/06/img_8317.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266497/img_8317_kjjvtb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364921/website_images/2023/06/img_8321.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266525/img_8321_f9rdif.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364905/website_images/2023/06/img_8327.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266536/img_8327_pbps6w.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364919/website_images/2023/06/img_8324.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266570/img_8324_y9os9m.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364914/website_images/2023/06/img_8330.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266578/img_8330_fzdjui.jpg)
 
 Then my day got infinitely better.
 
@@ -357,7 +357,7 @@ The mixed guy couldn’t speak English, so I translated to Japanese. Soon enough
 
 With English, Hebrew, French, German, Italian, Japanese, Korean, and Spanish spoken around the table, I felt like I was transported to the Tower of Babel, except the good version where everyone got along and had a blast. They’d all been traveling for at least six months.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364750/website_images/2023/06/img_2267.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266550/img_2267_bnt5sz.jpg)
 
 The mixed guy bought food for drinks for us. By the time his order arrived, it was past 23:00. I hadn’t realized how fast the last hours had gone by.
 

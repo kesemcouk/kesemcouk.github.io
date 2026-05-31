@@ -8,7 +8,7 @@ category: "taiwan"
 series_type: travel-logs
 ---
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360147/website_images/2024/05/Taiwan-3-225x300.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266487/Taiwan-3-225x300_r7fuoq.png)
 
 ### 22 posts (19 chapters, 3 poems)
 

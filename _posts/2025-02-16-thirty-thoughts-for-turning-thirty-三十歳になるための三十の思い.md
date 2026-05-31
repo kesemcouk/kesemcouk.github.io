@@ -25,7 +25,7 @@ So instead, my new blog, [Sex and the Biggest City]({% link _pages/satbc.md %} "
 
 To my surprise, school has also prompted me to reflect on my past. In the last few weeks, I had to write a user manual about myself in third person; and create a chart about my happiness throughout my life.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359546/website_images/2025/01/IMG_0063-1024x671.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266019/IMG_0063-1024x671_m4q0u0.jpg)
 
 As I look back on thirty years of existence, I look forward to a new decade, where things will continue, for better or worse, to surprise me.
 

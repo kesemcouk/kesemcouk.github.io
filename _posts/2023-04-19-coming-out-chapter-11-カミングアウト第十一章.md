@@ -25,11 +25,11 @@ In chapter 11, I...
 
 The picture above is from 8 August 2009, when I threw a party at my place just like SpongeBob did in season 3.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361927/website_images/2023/01/2009.08.08-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266003/2009.08.08-1_n2eqdy.jpg)
 
 The entries between last chapter's (May 2009) and the following (September 2009) include things like the announcement of _two_ new Mario games at Nintendo’s 2009 E3 and me feeling on cloud nine; cutting my hair into a Beatles-inspired bowl cut; my new bedroom getting a makeover; graduating from Japanese class; fantasising about having a boyfriend; throwing a “black-and-white ball” at my place (inspired by Ugly Betty season 2 episode 3) and feeling happy I had friends to invite; documenting my sleep problems; going to a new arts class and drawing something other than a Dango for once; and growing closer to A, who will become important later on.
 
-- ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361772/website_images/2023/01/Chapter-11-picture-1-768x1024.jpg)
+- ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266027/Chapter-11-picture-1-768x1024_hcb1x9.jpg)
     
 
 ２００９年9月26日              どようび            0:21

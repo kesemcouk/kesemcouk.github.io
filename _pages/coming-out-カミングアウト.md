@@ -8,7 +8,7 @@ category: coming-out
 series_type: journals
 ---
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360137/website_images/2024/04/30.11.09-TAU-excursion.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266002/30.11.09-TAU-excursion_ihfnwp.jpg)
 
 ### 17 posts (16 chapters, 1 synopsis)
 

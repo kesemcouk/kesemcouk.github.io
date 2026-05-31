@@ -582,15 +582,15 @@ Dinner was konbini food. Everything in the area was closed. I’d been making ex
 
 I stepped out into my balcony. It was dark and freezing. Hakone Shrine’s red torii gate, partially submerged in the lake, was illuminated in front of me. I considered scrapping all my plans for this town and heading to west Tokyo, to look for that guy.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360893/website_images/2023/03/img_2820-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266067/img_2820-768x1024_bjwgkn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360892/website_images/2023/03/img_2821-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266109/img_2821-768x1024_l4lksy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360871/website_images/2023/03/img_2822-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266067/img_2822-1024x768_rhhyla.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360874/website_images/2023/03/img_2823-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266097/img_2823-1024x768_h67zq0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360875/website_images/2023/03/img_2824-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266067/img_2824-1024x768_qenhlz.jpg)
 
 That ship had sailed, I realised, just like the one I took today.
 

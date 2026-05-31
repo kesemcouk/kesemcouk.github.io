@@ -302,11 +302,11 @@ I’ve made it to the hotel. Dinner was good but felt like an appetizer. The las
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/02/IMG_2167-1024x768.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360932/website_images/2023/02/IMG_2169-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266054/IMG_2169-1024x768_dqrzaz.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/02/IMG_2170-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360929/website_images/2023/02/IMG_2172-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266083/IMG_2172-1024x768_owwoce.jpg)
 
 **Today's highlight**: the sunrise tour, by default. Particularly that frozen towel.
 
@@ -334,9 +334,9 @@ Finally we reached the frozen waterfall we’d set out to. The cameraman had bee
 
 My phone battery died before I managed to take any photos. The frozen waterfall was breath-taking. There were icicles and “snowfalls” (I don’t know if this is a word, but snow that froze before it fell to the ground). We could see and hear the waterfall’s water flowing underground, forming a river that to my understanding supplied water to the ryokan’s hotel.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360936/website_images/2023/02/IMG_2195.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266054/IMG_2195_s4k8wu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360936/website_images/2023/02/IMG_2196.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266056/IMG_2196_lvzb5x.jpg)
 
 > [
 > 
@@ -352,11 +352,11 @@ The tour ended up being 4 hours instead of 2, and I returned the ryokan for a qu
 
 Next, I dipped into the ryokan’s open-air onsen. This is my fifth day in a row visiting an onsen, and I can’t decide which one was better. This time the water was brown and overlooked the snowy mountains. Snow was falling, and once again the experience was both cold and warm.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360932/website_images/2023/02/IMG_2177-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266053/IMG_2177-1024x768_c86mkt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360930/website_images/2023/02/IMG_2176-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266053/IMG_2176-1024x768_ilgdnl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360929/website_images/2023/02/IMG_2182-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266055/IMG_2182-1024x768_s2fplj.jpg)
 
 The above obviously count as **today’s highlights**. Snowshoe trek & getting interviewed; the rotenburo; and getting a birthday cake from the hotel.
 

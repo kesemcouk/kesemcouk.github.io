@@ -54,7 +54,7 @@ But it felt great to be back in Matsuyama, back in the countryside, back with a 
 
 I already saw visitors walking around in yukata. All the shops and services were closed at this hour. Every elderly person was wearing a mask.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360583/website_images/2024/08/IMG_0615-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266040/IMG_0615-768x1024_jtxfhy.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0616-768x1024.jpeg)
 
@@ -92,7 +92,7 @@ I'd assumed there would be hundreds of them. They quickly turned out a disappoin
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0635-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360606/website_images/2024/08/IMG_0639-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266062/IMG_0639-768x1024_gxirvr.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0646-768x1024.jpeg)
 
@@ -190,7 +190,7 @@ The crowd walked to the front of the stage and learned a dance routine. Only Ehi
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0680-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360585/website_images/2024/08/IMG_0686-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266091/IMG_0686-768x1024__v1769360585_t41qgh.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0699-768x1024.jpeg)
 
@@ -244,9 +244,9 @@ We had a nice lunch. “I have to go,” she said at 16:00. “I leave in 1.5 ho
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0723-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360605/website_images/2024/08/IMG_0720-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266066/IMG_0720-768x1024_kjq5vo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360594/website_images/2024/08/IMG_0722-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266065/IMG_0722-1024x768_reugnh.jpg)
 
 ### Kochi Yosakoi Festival
 
@@ -266,13 +266,13 @@ I followed this team for half an hour until the end of their performance, and re
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0714-1-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360585/website_images/2024/08/IMG_0726-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266094/IMG_0726-768x1024__v1769360585_ev7oql.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0740-768x1024.jpeg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0742-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360596/website_images/2024/08/IMG_0763-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266096/IMG_0763-768x1024_ncbonm.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0768-768x1024.jpeg)
 
@@ -300,7 +300,7 @@ At 19:00, I settled at the park, exhausted from running amok. I heard Hebrew spo
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0832-576x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360606/website_images/2024/08/IMG_0837-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266068/IMG_0837-768x1024_vivq8b.jpg)
 
 After touring the shopping arcades again and feeling disappointed by the performances, the festival ended at 22:00. I was relieved. Weariness and over-saturation had prevented it from dethroning Akita Kanto as my favourite festival in Japan. Only the electrifying teams had spoken to me.
 
@@ -344,7 +344,7 @@ Kochi was much more spirited than Matsuyama. Even the trams were themed with car
 
 Unlike Matsuyama, which enjoyed more Korean and Chinese tourists than Japanese, the opposite was true here.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360605/website_images/2024/08/IMG_0843-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266069/IMG_0843-768x1024_cbiy5b.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0845-768x1024.jpeg)
 
@@ -370,7 +370,7 @@ It was dead quiet, but that was the point – no one was around to make a ruckus
 
 The great outdoors, right on his doorstep.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360589/website_images/2024/08/IMG_0861-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266042/IMG_0861-768x1024_cyjoji.jpg)
 
 We improvised dinner by frying rice with tofu and frozen vegetables. He was quite elaborate in his seasoning. I always threw in some sesame oil and soy sauce, while he added to this miso paste and other spices.
 
@@ -396,17 +396,17 @@ Soon, the other campers joined us. The sky began to blush, while the sinking sun
 
 「眩しい」the Japanese campers kept repeating.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360591/website_images/2024/08/IMG_0885-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266042/IMG_0885-768x1024_vzyvqw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360595/website_images/2024/08/C43BF698-1D48-47B0-BFD1-2DB594DC604C-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266006/C43BF698-1D48-47B0-BFD1-2DB594DC604C-770x1024_qvkibb.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0894-768x1024.jpeg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0899-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360602/website_images/2024/08/IMG_0907-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266070/IMG_0907-768x1024_zmrzma.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360596/website_images/2024/08/IMG_0919-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266070/IMG_0919-768x1024_qwskmu.jpg)
 
 We stayed by the Buddha well into dusk, long after they had descended to eat dinner. Deer were roaming on a hill. The lonesome meditator frozen in stone, high at a secluded spot like this – the purple sky – the cool air – the warm company of a friend in shoes similar to my own – I knew I wouldn’t forget this moment, before it even passed.
 
@@ -426,15 +426,15 @@ At 21:00, Sam and I retreated into our tent.
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0925-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360589/website_images/2024/08/IMG_0926-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266024/IMG_0926-768x1024_wuy1gr.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/76F0AAF4-F4EF-4C13-8991-8942D6BE6FBF-770x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360598/website_images/2024/08/IMG_0927-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266024/IMG_0927-768x1024_ldrei1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360598/website_images/2024/08/IMG_0930-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266024/IMG_0930-768x1024_alx7za.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360593/website_images/2024/08/IMG_0932-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266043/IMG_0932-768x1024_nodwjf.jpg)
 
 **Today's highlights:** KATSUO NO TATAKI; fried whale; Kochi Yosakoi festival; camping with Sam; the various landscapes I saw today; the clifftop Buddha at sunset; stargazing.
 
@@ -464,11 +464,11 @@ But I had all the company and food that I needed. My first time camping couldn�
 
 Sam and I drove up the nearby mountain. A couple of snakes slithered away from his car. More Buddhas graced the observation point here.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360596/website_images/2024/08/IMG_0937-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266043/IMG_0937-768x1024_zdbkzr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360584/website_images/2024/08/635C9C5A-0205-4D9A-B557-75C967DEED2D-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266002/635C9C5A-0205-4D9A-B557-75C967DEED2D-770x1024_ystm0z.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360598/website_images/2024/08/E439920F-F00D-4C18-A34C-2A5BDFC68497-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266034/E439920F-F00D-4C18-A34C-2A5BDFC68497-1024x768_d6hgkw.jpg)
 
 At 9:00, we started down the mountain. I checked the time for my limited express train to Tokushima. It would cost me, but I wouldn’t have made it to the bus anyway.
 
@@ -494,7 +494,7 @@ Shikoku was my first time encountering festivals that didn’t reward early atte
 
 I searched all over the street food stands on the southern bank of the river, but couldn’t find the Lebanese falafel shop that sold chickpea donuts. Shame. I devoured a processed plate of takoyaki and returned to my seat at 16:30.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360583/website_images/2024/08/IMG_0948-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266071/IMG_0948-768x1024_avfy4r.jpg)
 
 At 18:00, the festival began.
 
@@ -546,11 +546,11 @@ What set Tokushima Awa Odori apart from other festivals – including local vers
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_0996-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360586/website_images/2024/08/IMG_1002-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266071/IMG_1002-768x1024_k4g7d4.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_1006-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360585/website_images/2024/08/IMG_1011-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266072/IMG_1011-768x1024_njsn4d.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/08/IMG_1017-768x1024.jpeg)
 

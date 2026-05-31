@@ -38,7 +38,7 @@ As soon as I entered the underground Pole Town connecting the two stations, I kn
 
 And soon enough, I had a gigantic soft serve ice cream and one of their cheese tarts in my belly. Back during the snow festival, there was a huge line, but today, none at all.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361458/website_images/2023/09/img_2738.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266510/img_2738_ou1iew.jpg)
 
 Susukino’s center was closed as well. Being the nightlife area, it opened from afternoon to 2:00 am.
 
@@ -60,17 +60,17 @@ Odori park (not a park, whoever had named it, but thanks) had hosted the snow fe
 
 I picked towns I hadn’t heard of and wouldn’t get to visit on this trip. A giant, grilled mushroom with butter and soy sauce from Nakashibetsu; grilled scallops from Setana; “Handsome-San” (a pastry shaped like a man’s face and filled with anko) from Date; and a sweet potato crème brûlée crepe from a town whose name I’d forgotten.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361641/website_images/2023/09/img_2741.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266563/img_2741_qit7dw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361602/website_images/2023/09/img_2742.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266496/img_2742_lhxt78.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361610/website_images/2023/09/img_2743.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266555/img_2743_xgpemh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361675/website_images/2023/09/img_2744.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266516/img_2744_w1fcng.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361676/website_images/2023/09/img_2745.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266505/img_2745_dxofxl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361710/website_images/2023/09/img_2746.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266505/img_2746_q0ar3x.jpg)
 
 ### Business Dinner
 
@@ -102,9 +102,9 @@ The meal was pretty modest in terms of size (why did every single person I met e
 
 I bid everyone good night, hoping to have another meal like this before I left Hokkaido, a month from now.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361294/website_images/2023/09/img_2748.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266543/img_2748_kicfh1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361675/website_images/2023/09/img_2751.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266516/img_2751_o2q8ns.jpg)
 
 **Today's highlights:** returning to good old Sapporo; the soft serve ice cream and cheese tart; the Autumn Festival lunch; the dinner.
 
@@ -152,9 +152,9 @@ I checked my map. Ramen Yokocho was a 5-minute walk away. I’d eaten there, on 
 
 We queued up and ordered the same miso cheese ramen. Thick, heavy, cheesy sauce. Only in Hokkaido.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361708/website_images/2023/09/img_2753.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266517/img_2753_glvbtm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361639/website_images/2023/09/img_2754.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266512/img_2754_pv5yka.jpg)
 
 “What should we do know?” we wondered aloud at the end of the meal.
 
@@ -188,11 +188,11 @@ The lit-up city looked brilliant at night, contrasted by the surrounding, pitch-
 
 The ropeway was extremely crowded. This was indeed one of the best things to do in Sapporo, especially on a day like this. Up here, the air was cool and breezy. I needed a jacket. There were plenty of couples, attracted by the romance of this pink-to-black landscape. I spotted one avenue more brightly lit that any other street; probably Odori.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361639/website_images/2023/09/img_2755.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266505/img_2755_a5jzi9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361266/website_images/2023/09/img_2762.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266496/img_2762_jwb134.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361645/website_images/2023/09/img_2768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266505/img_2768_gsbuo9.jpg)
 
 At 18:45, I rushed back to the ropeway, because my host from two days ago had suggested meeting for dinner.
 
@@ -220,11 +220,11 @@ He insisted on paying in the end. It was expensive… three times my budget.
 
 Earlier, upon hearing what he’d eaten there, I’d exclaimed that he’d missed my favourite dishes: tahini, the Israeli cottage cheese, etc. We’d agreed another visit was in order.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361419/website_images/2023/09/img_2773.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266516/img_2773_nn0239.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/09/img_2774.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361302/website_images/2023/09/img_2775.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266519/img_2775_gpbloe.jpg)
 
 I took the metro back to my hostel. My key to my dormitory didn't work, and I found myself sitting in the hallway at midnight with 3% of battery left. None of the other guests came in and out.
 
@@ -256,15 +256,15 @@ This was a modest pride. A stage with some… underwhelming performances. Things
 
 Ironically enough, the music that was playing here was English pop and K-pop. J-pop did not fit the vibe.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361641/website_images/2023/09/img_2782.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266558/img_2782_mlaoau.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361716/website_images/2023/09/img_2785.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266566/img_2785_m3zyj5.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361719/website_images/2023/09/img_2791.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780265982/img_2791_xapzrp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361684/website_images/2023/09/img_2793.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266538/img_2793_gx8kdk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361609/website_images/2023/09/img_2794.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266546/img_2794_ly9hwp.jpg)
 
 At 15:00, I returned to my hostel, disappointed that I hadn’t gotten around to making new acquaintances. Sapporo might be the fifth largest city in Japan, but half the time, I could cross the road without waiting for a green light, because the cars weren’t that many.
 

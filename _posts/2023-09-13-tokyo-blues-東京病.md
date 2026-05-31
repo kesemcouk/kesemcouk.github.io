@@ -49,13 +49,13 @@ I came across a waterlily pond situated against skyscrapers. Only in Tokyo one c
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/09/img_2669.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361533/website_images/2023/09/img_2664.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266547/img_2664_ty02wo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361445/website_images/2023/09/img_2667.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266538/img_2667_cft3qo.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/09/img_2662-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361466/website_images/2023/09/img_2670.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266560/img_2670_icqeaz.jpg)
 
 ### A Complete Failure
 
@@ -271,7 +271,7 @@ Not knowing when the next class would start, I sat down, just charged my phone (
 
 At 16:30, a kids’ training session began. They stretched and ran laps around the tatami stage and were just overall very cute. The class consisted of exercises to improve mobility, such as rolling, running backwards like a spider on all fours, crawling, somersaulting…
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361452/website_images/2023/09/img_2671.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266530/img_2671_spwfb6.jpg)
 
 ### Bunkyo Observation Deck
 
@@ -283,11 +283,11 @@ I watched cars move and pedestrians cross. People working in offices. They all s
 
 As the sun set at 17:55 and the sky turned darker, more and more buildings lit up. The city looked sad: gray, blue, dots of yellow. A few tree-filled parks here and there.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361421/website_images/2023/09/img_2672.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266519/img_2672_idgjh8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361401/website_images/2023/09/img_2677.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266497/img_2677_xcvdu5.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361589/website_images/2023/09/img_2686.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266532/img_2686_e2fuqi.jpg)
 
 ### Unsuccessful Date #2
 
@@ -315,11 +315,11 @@ In the end, I found a ne-café near Ikebukuro station that was almost three time
 
 The drink bar was good, though, and to my delight, the ice cream machine even included a toppings corner. Vanilla and matcha flavours, with various fruit-flavoured sauces. I liked this ne-café better.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361572/website_images/2023/09/img_2694.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266511/img_2694_ksv2tl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361550/website_images/2023/09/img_2693.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266494/img_2693_ph8nxp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361496/website_images/2023/09/img_2695.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266503/img_2695_tajxev.jpg)
 
 **Today's highlights:** forest therapy at Koishikawa Korakuen; learning about Judo and watching a class; sunset over Tokyo; milk after sento.
 
@@ -405,7 +405,7 @@ The exhibition was modest (3 medium sized rooms), yet every single painting was 
 
 Interesting how the art that moved me the most in Japan was modern Japanese paintings, in Yamatane and MOMAT (Museum of Modern Art, Tokyo). I made a mental note to return to MOMAT for their renewed collection in late October.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361452/website_images/2023/09/img_2698.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266544/img_2698_lpp8e7.jpg)
 
 ### Shibuya Scramble
 
@@ -415,11 +415,11 @@ I crossed the scramble. Always chaotic; always fun. Giant billboards with commer
 
 A few minutes from the station was a love hotel block. Every single building in those streets was one. Moki had snuck into an abandoned love hotel here last Halloween. Now I found that it had been barricaded. No crazy adventure for me.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361418/website_images/2023/09/img_2702.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266551/img_2702_noapqf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361420/website_images/2023/09/img_2699.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266500/img_2699_agqwtq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361417/website_images/2023/09/img_2703.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266541/img_2703_n1tjxf.jpg)
 
 So I used my free time for the next hour to call my family. It had been a while.
 
@@ -485,21 +485,21 @@ We walked to Nezu shrine. Very pretty, very scarcely attended. Lots of torii gat
 
 I already needed to return to Japan.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361432/website_images/2023/09/img_2706.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266559/img_2706_n3gclf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361335/website_images/2023/09/img_2707-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266087/img_2707-1024x768_zr6zfz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361598/website_images/2023/09/img_2709-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266087/img_2709-768x1024_y8em3b.jpg)
 
 ### Tokyo University
 
 Next, we walked to Todai (Tokyo University, number 1 in Japan). The western architecture gave me a British vibe, bringing up memories from my 1-year M.A. at UEA. It would’ve been nice to have been born Japanese, and to have attended Todai.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361557/website_images/2023/09/img_2711-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266087/img_2711-768x1024_epzoxm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361509/website_images/2023/09/img_2710-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266104/img_2710-768x1024_feyijv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361454/website_images/2023/09/img_2715-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266063/img_2715-768x1024_jlil2o.jpg)
 
 Right outside the campus stood Yayoi Museum, tiny and obscure. Dolls, trinkets, old-school memorabilia; mostly colourful girl stuff. There was also a temporary exhibition about the Great Kanto Earthquake, as well as Takehisa Yumeji, with his one-of-a-kind nihonga (basically, children’s book illustrations on hanging scrolls, with rough lines and empty space) and drawings of women in kimono (1920’s flapper style, very pretty and sentimental).
 
@@ -507,9 +507,9 @@ At 11:30, we returned to Todai campus for a cheap meguro rice bowl, and walked b
 
 This was a first for me. My matcha anmitsu consisted of anko (sweet red bean), kuromitsu (delicious honey-liked dark sauce), and matcha ice cream. I disliked all the jelly served with it, though.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361555/website_images/2023/09/img_2716-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266063/img_2716-768x1024_rb6oev.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361511/website_images/2023/09/img_2717-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266064/img_2717-768x1024_od2jno.jpg)
 
 ### Ueno Zoo
 
@@ -523,11 +523,11 @@ The highlight was the pandas – either sleeping or eating, but still, probably 
 
 After a hot hour at the zoo, she walked me to the ticket gate. We’d meet again in a month from now, in her turf.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361253/website_images/2023/09/img_2718-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266104/img_2718-768x1024_rf3uh7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361378/website_images/2023/09/img_2722-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266088/img_2722-768x1024_pwyr5r.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361481/website_images/2023/09/img_2726-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266088/img_2726-768x1024_h0py6k.jpg)
 
 ### Narita Airport
 
@@ -539,7 +539,7 @@ Today, a month in Hokkaido would start. I would see autumn leaves for the first 
 
 My flight took off a bit late and landed earlier than expected. I managed to charge my phone a little and find a direct bus to my accommodation for tonight, instead of faster, more expensive, multiple trains.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361496/website_images/2023/09/img_2734-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266049/img_2734-768x1024_gscq3x.jpg)
 
 ### Home in Hokkaido
 

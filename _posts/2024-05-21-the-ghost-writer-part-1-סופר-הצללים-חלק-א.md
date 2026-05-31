@@ -51,11 +51,11 @@ Breakfast at the café near her apartment included chocolate milk (my first choi
 
 “This trip was the first time I felt happy,” I said, now in tears like her. “The first time I felt like I was home.”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360199/website_images/2024/05/IMG_1134-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266045/IMG_1134-768x1024_phcui0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360172/website_images/2024/05/IMG_1137-767x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266074/IMG_1137-767x1024_xqecaa.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360165/website_images/2024/05/IMG_1142-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266074/IMG_1142-768x1024_lpkfip.jpg)
 
 Then we bought a transistor radio and an emergency lamp. Two days ago, the Israeli government had advised all citizens to prepare their safe rooms for an escalation in the war.
 
@@ -97,11 +97,11 @@ She claimed she didn’t want people to gossip. I had no problem with anyone kno
 
 I slept on my new, divinely firm bed. Yet I would pick old hostels in a heartbeat, if it meant returning to the Far East. To traveling and living on my own, instead of being watched by my family.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360185/website_images/2024/05/IMG_1306-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266081/IMG_1306-768x1024_jegdbx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360165/website_images/2024/05/IMG_1161-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266046/IMG_1161-768x1024_bdjdgr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360177/website_images/2024/05/IMG_1303-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266049/IMG_1303-768x1024_m7on4j.jpg)
 
 ## 13 April 2024
 
@@ -125,23 +125,23 @@ My second morning in Israel had involved a visit to a dermatologist. My bug bite
 
 Moreover, my orthodontic retainer had come off on my last day in Taiwan, and now I couldn’t replace it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360208/website_images/2024/05/IMG_1143-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266045/IMG_1143-768x1024_lx4btx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360158/website_images/2024/05/IMG_1152-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266045/IMG_1152-768x1024_djd5lw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360213/website_images/2024/05/IMG_1154-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266075/IMG_1154-768x1024_fkumvv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360148/website_images/2024/05/IMG_1155-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266075/IMG_1155-768x1024_xrrfi6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360177/website_images/2024/05/IMG_1166-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266075/IMG_1166-768x1024_t731wz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360146/website_images/2024/05/IMG_1168-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266076/IMG_1168-768x1024_s2ghpj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360190/website_images/2024/05/IMG_1170-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266076/IMG_1170-768x1024_ttx3vm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360176/website_images/2024/05/IMG_1171-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266076/IMG_1171-768x1024_cylkzn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360163/website_images/2024/05/IMG_1172-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266101/IMG_1172-768x1024_sgcd0h.jpg)
 
 ### The Ghosthunter
 
@@ -203,23 +203,23 @@ Then, during Passover dinner with mom and family friends, we read the Haggadah. 
 
 “You need to EAT!”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360165/website_images/2024/05/IMG_1176-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266046/IMG_1176-768x1024_l8p5hz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360175/website_images/2024/05/IMG_1196-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266077/IMG_1196-768x1024_e1uyqe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360224/website_images/2024/05/IMG_1202-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266029/IMG_1202-768x1024_fzvxrb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360151/website_images/2024/05/IMG_1203-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266046/IMG_1203-768x1024_expaet.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360197/website_images/2024/05/IMG_1205-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266077/IMG_1205-768x1024_pp0gp9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360198/website_images/2024/05/IMG_1212-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266078/IMG_1212-768x1024_gqfa43.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360224/website_images/2024/05/IMG_1215-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266077/IMG_1215-768x1024_zj3bge.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360155/website_images/2024/05/IMG_1217-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266047/IMG_1217-768x1024_fxtxiy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360168/website_images/2024/05/IMG_1219-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266078/IMG_1219-768x1024_bv0vb3.jpg)
 
 ### Fight with a Friend
 
@@ -339,17 +339,17 @@ I wanted my peace of mind back. Love had taken over my brain, even when I didn�
 
 “The ego is not a master in its own home,” Frued had said. I was powerless, impotent, consumed by pining. A discarded toy in a safe room, where I wrote while snacking on matzah.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360149/website_images/2024/05/IMG_1224-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266047/IMG_1224-770x1024_xmbexv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360154/website_images/2024/05/IMG_1229-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266078/IMG_1229-768x1024_pwsmek.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360180/website_images/2024/05/IMG_1231-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266047/IMG_1231-768x1024_p9gimc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360173/website_images/2024/05/IMG_1234-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266079/IMG_1234-768x1024_pvbrbc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360203/website_images/2024/05/IMG_1236-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266102/IMG_1236-768x1024_ownfcm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360168/website_images/2024/05/IMG_1237-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266079/IMG_1237-768x1024_wr7i8b.jpg)
 
 ## 2 May 2024
 
@@ -397,17 +397,17 @@ Dinner was with my sister and her friends from our high school. It felt so good 
 
 My time on this Earth was limited. I despised how some people had played games with me and wasted it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360159/website_images/2024/05/IMG_1249-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266079/IMG_1249-768x1024_nztwbn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360194/website_images/2024/05/IMG_1251-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266048/IMG_1251-768x1024_gpwpnb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360194/website_images/2024/05/IMG_1252-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266102/IMG_1252-768x1024_aeyfvx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360167/website_images/2024/05/IMG_1254-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266048/IMG_1254-768x1024_zc6z9j.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360179/website_images/2024/05/IMG_1257-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266080/IMG_1257-768x1024_h95dr0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360209/website_images/2024/05/IMG_1258-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266102/IMG_1258-768x1024_gn8bkj.jpg)
 
 ## 6 May 2024
 
@@ -459,15 +459,15 @@ The fourth value I’d noticed was pluralism. The melting pot policy of the 1950
 
 This multi-culturalism had led to various languages and cuisines, yet also to insurmountable disagreements among voting citizens that had destroyed local politics.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360167/website_images/2024/05/IMG_1260-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266102/IMG_1260-1-768x1024_bvmdv0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360154/website_images/2024/05/IMG_1277-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266049/IMG_1277-1-768x1024_p9oy4d.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360159/website_images/2024/05/IMG_1280-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266080/IMG_1280-1-768x1024_re94iu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360175/website_images/2024/05/IMG_1267-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266080/IMG_1267-1-768x1024_dn02pv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360154/website_images/2024/05/IMG_1270-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266049/IMG_1270-1-768x1024_r5nmvk.jpg)
 
 ### The End of Love
 

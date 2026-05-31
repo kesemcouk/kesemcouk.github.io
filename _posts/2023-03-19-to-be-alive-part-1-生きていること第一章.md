@@ -77,7 +77,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361929/website_images/2023/01/Prologue-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266483/Prologue-picture-1-768x1024_diadvd.jpg)
     
     <figcaption>
     
@@ -89,7 +89,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361899/website_images/2023/01/Prologue-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266483/Prologue-picture-2-768x1024_frwaew.jpg)
     
     <figcaption>
     
@@ -101,7 +101,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361748/website_images/2023/01/Prologue-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266484/Prologue-picture-3-768x1024_pehppe.jpg)
     
     <figcaption>
     
@@ -113,7 +113,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361743/website_images/2023/01/Prologue-picture-4-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266484/Prologue-picture-4-768x1024_kse8pz.jpg)
     
     <figcaption>
     
@@ -125,7 +125,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361928/website_images/2023/01/Prologue-picture-5-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266484/Prologue-picture-5-768x1024_hbeegg.jpg)
     
     <figcaption>
     
@@ -137,7 +137,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361890/website_images/2023/01/Prologue-picture-6-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266484/Prologue-picture-6-768x1024_ooae32.jpg)
     
     <figcaption>
     
@@ -149,7 +149,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361755/website_images/2023/01/Prologue-picture-7-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266484/Prologue-picture-7-768x1024_hnd2sy.jpg)
     
     <figcaption>
     
@@ -161,7 +161,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361873/website_images/2023/01/Prologue-picture-8-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266485/Prologue-picture-8-768x1024_lpawju.jpg)
     
     <figcaption>
     
@@ -173,7 +173,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361804/website_images/2023/01/Prologue-picture-9-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266485/Prologue-picture-9-768x1024_hf3usb.jpg)
     
     <figcaption>
     
@@ -185,7 +185,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361798/website_images/2023/01/Prologue-picture-10-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266485/Prologue-picture-10-768x1024_c5qsnx.jpg)
     
     <figcaption>
     
@@ -197,7 +197,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361881/website_images/2023/01/Prologue-picture-11-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266485/Prologue-picture-11-768x1024_ilugbl.jpg)
     
     <figcaption>
     
@@ -209,7 +209,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361838/website_images/2023/01/Prologue-picture-12-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266485/Prologue-picture-12-768x1024_mq57al.jpg)
     
     <figcaption>
     
@@ -221,7 +221,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361811/website_images/2023/01/Prologue-picture-13-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266486/Prologue-picture-13-768x1024_hmpv74.jpg)
     
     <figcaption>
     
@@ -233,7 +233,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361803/website_images/2023/01/Prologue-picture-14-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266486/Prologue-picture-14-768x1024_xpeoqk.jpg)
     
     <figcaption>
     
@@ -245,7 +245,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361872/website_images/2023/01/Prologue-picture-15-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266486/Prologue-picture-15-768x1024_ci0y1b.jpg)
     
     <figcaption>
     
@@ -257,7 +257,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361833/website_images/2023/01/Prologue-picture-16-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266486/Prologue-picture-16-768x1024_vdcohu.jpg)
     
     <figcaption>
     
@@ -269,7 +269,7 @@ So here is me raising that percentage to 51. Before this trip, I re-read my chil
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361820/website_images/2023/01/Prologue-picture-17-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266486/Prologue-picture-17-768x1024_dungra.jpg)
     
     <figcaption>
     

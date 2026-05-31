@@ -534,7 +534,7 @@ The latter had been happening even with people I’d grown close to on this trip
 
 I didn’t know how people saw the world. I didn’t know what people saw in me. To be enough for others – to not disappoint or vex them – was a challenge I had to face every day. But to be enough for myself, and feel content with my present, was a hardship I might never prevail.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360915/website_images/2023/05/img_8780-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266430/img_8780-768x1024_xeqm0i.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/07/img_8782.jpg)
 

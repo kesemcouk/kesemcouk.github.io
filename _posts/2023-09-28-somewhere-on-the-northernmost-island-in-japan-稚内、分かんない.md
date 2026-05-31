@@ -27,7 +27,7 @@ coverImage: "img_2877-scaled.jpg"
 
 The night bus from Sapporo to Wakkanai was like the one I’d taken from Sapporo to Utoro between February 11-12, and as such, featured reclinable seats. I managed to sleep around 4.5 hours thanks to a hefty dosage of melatonin, and watched the sun rise over Wakkanai Ferry Terminal as soon as I arrived at 5:30 in the morning.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361399/website_images/2023/09/img_2844.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266491/img_2844_qdrue8.jpg)
 
 I bought an economy class ticket and walked to the train station through windy Wakkanai. Deer randomly grazing on the way. Signs in Wakkanai contained Russian translations.
 
@@ -47,11 +47,11 @@ As the ship continued to somersault for the next 1.5 hours, I stayed in the rest
 
 Old men entered the restroom and left one by one. I heard people vomit in nearby rooms. Then, before I knew it, we docked at the sunny island of Rebun.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361395/website_images/2023/09/img_2846.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266500/img_2846_xdgkrt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361553/website_images/2023/09/img_2849.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266519/img_2849_ntq6pf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361398/website_images/2023/09/img_2850.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266517/img_2850_vnczx2.jpg)
 
 ### Rebun Island
 
@@ -91,11 +91,11 @@ It took me 35 minutes to climb a road toward a hill. The temperature was 18 degr
 
 At the first intersection, I chose not to turn right to the flower habitat, because one of the flowers that was unique to this island wasn’t blooming anymore. So I continued to the 4-hour course toward Momoiwa (“peach rock”) observation point.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361515/website_images/2023/09/img_2858.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266523/img_2858_kxmi2u.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361501/website_images/2023/09/img_2859.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266549/img_2859_veazhu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361515/website_images/2023/09/img_2860.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266532/img_2860_ddfgod.jpg)
 
 Those hills, overlooking the ocean, were the most tempestuous place I’d inhabited. If I hadn’t held on to ropes and handrails, I would’ve fallen.
 
@@ -111,23 +111,23 @@ I trudged next to a woman from a town near Sapporo. We held onto our hats. If I�
 
 We reached a lighthouse that was closed but offered a tremendous view of the perfectly blue ocean. Pale grey wheat, very soft to touch. At 11:45, we arrived at Shiretoko bus stop, at the end of the course.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361507/website_images/2023/09/img_2867.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266574/img_2867_rvvh8r.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361515/website_images/2023/09/img_2870.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266551/img_2870_tovhoy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361496/website_images/2023/09/img_2873.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266506/img_2873_iclknx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361547/website_images/2023/09/img_2875.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266504/img_2875_jizu7p.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361406/website_images/2023/09/img_2878.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266575/img_2878_kjc2qq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361451/website_images/2023/09/img_2881.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266548/img_2881_wmjtqt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361555/website_images/2023/09/img_2888.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266565/img_2888_tbe8jb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361452/website_images/2023/09/img_2895.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266543/img_2895_resuxo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361497/website_images/2023/09/img_2898.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266550/img_2898_hxhsps.jpg)
 
 At 12:00, a melody played all over the streets to announce the time.
 
@@ -191,9 +191,9 @@ The sun was setting directly in front of us, and all the guests were outside enj
 
 They finished singing precisely at the moment the sun sank into the ocean.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361568/website_images/2023/09/img_2916.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266520/img_2916_lyzlmp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361318/website_images/2023/09/img_2918-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266070/img_2918-768x1024_nilyiw.jpg)
 
 Near 18:00, it was time to check in. The boys’ bunk beds were on an open-plan second floor, which encompassed the main hall. I placed my luggage near mine and learned two things.
 
@@ -273,9 +273,9 @@ This moment instantly became one of my highlights in Japan.
 
 Then it was over. End of trip; end of meeting.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361562/website_images/2023/09/img_2917-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266070/img_2917-768x1024_xojdh6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361279/website_images/2023/09/img_2919-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266071/img_2919-768x1024_qhhiq2.jpg)
 
 At once, the three ojiisans and I continued to the dining hall.
 
@@ -343,11 +343,11 @@ The sun rose. The sky was blushing as the 5:45 shuttle bus dropped us off at the
 
 Thank god the summit course was only three hours long. My legs were heavy, my shoulders painful, my eyes bloodshot.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361357/website_images/2023/09/img_2925-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266508/img_2925-1_zrpidv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361450/website_images/2023/09/img_2926-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266519/img_2926-1_cdvhcb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361606/website_images/2023/09/img_2929-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266546/img_2929-1_sbud41.jpg)
 
 One of the three ojiisans, from Hokkaido’s Biei, progressed south to the 4-hour course. Two ojiisans and I took the bus north to the summit course. One from Tokyo, Meguro, who had been to this island twice before (last night’s group leader), and one from Kobe, who had taken the ferry all the way to Otaru, and came to Hokkaido every year for the fall colours.
 
@@ -369,23 +369,23 @@ We descended along the same path, until, at 11:35, we were back in Nairo.
 
 Overall, we’d crossed paths with around ten other hikers, all elderly Japanese, apart from one middle-aged foreigner.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361427/website_images/2023/09/img_2930-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266116/img_2930-768x1024_yq0ukc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361635/website_images/2023/09/img_2932-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266578/img_2932-1_eux4zo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361718/website_images/2023/09/img_2934-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266575/img_2934-1_bnftgw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361590/website_images/2023/09/img_2937-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266591/img_2937-1_yjsw2o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361572/website_images/2023/09/img_2940-150x150.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266052/img_2940-150x150_crw97y.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361358/website_images/2023/09/img_2944-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266432/img_2944-1_oajyli.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361334/website_images/2023/09/img_2946-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266555/img_2946-1_miye41.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361593/website_images/2023/09/img_2951-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266570/img_2951-1_sk32c6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361687/website_images/2023/09/img_2953-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266559/img_2953-1_skjog0.jpg)
 
 ### Rebun Island's Hot Spring and Cuisine
 
@@ -423,9 +423,9 @@ I wasn’t going to say no to an opportunity like this, especially considering h
 
 Then we paid for our dinner. I hadn’t realized it would cost twice as much as my budget. But a very memorable meal nonetheless.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361514/website_images/2023/09/img_2982-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266098/img_2982-1-1024x768_uxlp55.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361589/website_images/2023/09/img_2978-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266098/img_2978-1-1024x768_otcf4g.jpg)
 
 ### More Craziness at the Hostel
 

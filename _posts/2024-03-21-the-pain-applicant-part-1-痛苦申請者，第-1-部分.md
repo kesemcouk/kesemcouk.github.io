@@ -53,9 +53,9 @@ I grouched as I strode through the galleries. Perhaps art in Taiwan wasn’t for
 
 At least the final gallery featured some nice landscape art.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360016/website_images/2024/03/IMG_9590-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266465/IMG_9590-768x1024_cqkvda.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359907/website_images/2024/03/IMG_9591-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266465/IMG_9591-1024x768_yifjus.jpg)
 
 Tainan art museum 2 was bigger and busier. Masterpieces on loan from the National Palace Museum included a miniature flower basket carved from a walnut shell; a miniature makeup case inlaid with gems; a yellow chalcedony tri-seal set; a Buddhist conch; and a miniature statue of a Lohan scratching his back.
 
@@ -65,23 +65,23 @@ The upper floors of the museum included sketches of aboriginals by Yen Shui-long
 
 Every single art museum in Taiwan so far had let me down. My only disappointment from this island.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359993/website_images/2024/03/IMG_9593-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266465/IMG_9593-768x1024_d2vfgm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360010/website_images/2024/03/IMG_9594-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266466/IMG_9594-768x1024_hciwsh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359603/website_images/2024/03/IMG_9595-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266466/IMG_9595-768x1024_naefh3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359687/website_images/2024/03/IMG_9596-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266466/IMG_9596-768x1024_zukv1s.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9597-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359714/website_images/2024/03/IMG_9598-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266466/IMG_9598-768x1024_bppaqy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359884/website_images/2024/03/IMG_9599-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266467/IMG_9599-768x1024_lk9cim.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359794/website_images/2024/03/IMG_9600-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266467/IMG_9600-768x1024_xmohbo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359655/website_images/2024/03/IMG_9601-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266467/IMG_9601-1024x768_ieg4xu.jpg)
 
 ### Guohua Road, Section 3
 
@@ -95,13 +95,13 @@ His clothes, bashfulness, and geekiness reminded me of Heron; while his stature 
 
 On paper, this had all the potential to have me smitten. But he lacked the unstoppable enthusiasm in Heron’s speech, or the deep, slow emotion in Eres's. The conversation felt a bit forced and shallow. Déjà vu to Japan. At 17:00, he left, after expressing a polite desire to meet again.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359719/website_images/2024/03/IMG_9607-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266467/IMG_9607-768x1024_oi8wvs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359970/website_images/2024/03/IMG_9608-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266468/IMG_9608-768x1024_c0fd5v.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359693/website_images/2024/03/IMG_9609-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266468/IMG_9609-768x1024_vufnrm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359809/website_images/2024/03/IMG_9604-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266467/IMG_9604-768x1024_mtvu0z.jpg)
 
 ### My Worst Date in Taiwan
 
@@ -161,17 +161,17 @@ Today the Tainan man and I visited Chimei museum, a gigantic, neoclassical compl
 
 It opened with a sculpture hall like London’s V&A museum. Celebration by Frederick Hart, in a feat of sculpting, depicted a woman attached to a man in two delicate points. The man was not really holding her; he was just pretending.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359604/website_images/2024/03/IMG_9633-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266471/IMG_9633-768x1024_ign1fy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360023/website_images/2024/03/IMG_9636-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266471/IMG_9636-768x1024_ycu4yg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359603/website_images/2024/03/IMG_9624-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266470/IMG_9624-768x1024_aptvoc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359864/website_images/2024/03/IMG_9616-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266469/IMG_9616-768x1024_tkmg3o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359705/website_images/2024/03/IMG_9614-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266468/IMG_9614-768x1024_dam0xn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359994/website_images/2024/03/IMG_9622-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266470/IMG_9622-768x1024_t9lnty.jpg)
 
 The exhibition continued with taxidermized animals; arms and armour from all over the world – Japan, Europe, Philippines, China, Nepal, Indonesia, New Zealand – including chainmail, cannons, swords, and samurai helmets; plates painted by Picasso; replices of sculptures by Rodin; and medieval art of the Madonna and Child.  
 
@@ -179,31 +179,31 @@ Only The Sacrifice of Jepthah by Paul Gustave Dore (1865) took my breath away. A
 
 Among Taiwan’s art museums, Chimei was an improvement.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359857/website_images/2024/03/IMG_9612-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266468/IMG_9612-768x1024_jsfdf1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359809/website_images/2024/03/IMG_9613-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266468/IMG_9613-768x1024_unctaw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359601/website_images/2024/03/IMG_9619-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266469/IMG_9619-768x1024_fptiav.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359560/website_images/2024/03/IMG_9620-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266469/IMG_9620-768x1024_p0yhv3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360019/website_images/2024/03/IMG_9621-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266469/IMG_9621-768x1024_ldau9o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359976/website_images/2024/03/IMG_9626-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266470/IMG_9626-768x1024_c1hui5.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359687/website_images/2024/03/IMG_9627-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266470/IMG_9627-768x1024_ks6vn6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359713/website_images/2024/03/IMG_9629-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266470/IMG_9629-768x1024_vbrcxu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359685/website_images/2024/03/IMG_9630-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266470/IMG_9630-768x1024_bfjmok.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359740/website_images/2024/03/IMG_9632-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266471/IMG_9632-1024x768_pn7zji.jpg)
 
 Back in Tainan, we ate danzai noodles – light, savoury, garlicky, another simple yet delectable local specialty – and a giant, decadent, refreshing bowl of shaved ice with glazed strawberry. The latter was my first time waiting for twenty minutes for food in Taiwan, a land of quick and easy street vendors. This seasonal winter dish was so popular, that it quickly sold out.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359551/website_images/2024/03/IMG_9637-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266471/IMG_9637-768x1024_fjxutm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359787/website_images/2024/03/IMG_9639-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266471/IMG_9639-768x1024_z0qqqq.jpg)
 
 ### Mt Cigu
 
@@ -211,11 +211,11 @@ In the afternoon, he drove us in his car to the northern countryside of Tainan p
 
 Since it was my first time seeing a salt mountain, I tasted a pinch. It was salty.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359659/website_images/2024/03/IMG_9640-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266472/IMG_9640-768x1024_ivu1uw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360040/website_images/2024/03/IMG_9642-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266472/IMG_9642-768x1024_rjfrok.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360046/website_images/2024/03/IMG_9646-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266472/IMG_9646-768x1024_fa4vje.jpg)
 
 ### Jingzaijiao Salt Fields
 
@@ -223,13 +223,13 @@ Further up north, Jingzaijiao Tile-paved Salt Fields were the oldest in Taiwan s
 
 In summer, right before typhoons, converging clouds painted the scene blue during twilight.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359954/website_images/2024/03/IMG_9656-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266472/IMG_9656-768x1024_ak4ern.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359768/website_images/2024/03/IMG_9667-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266473/IMG_9667-768x1024_m2zsnv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359670/website_images/2024/03/IMG_9670-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266473/IMG_9670-576x1024_psjrd7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359697/website_images/2024/03/IMG_9671-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266473/IMG_9671-1024x576_lprwyp.jpg)
 
 As we marveled at this view, I recalled one of my worst, and most important, days on this trip.
 
@@ -353,17 +353,17 @@ I left Tainan this morning for Kaohsiung. I would return here without fail next 
 
 Kaohsiung museum of fine arts was another disappointment. I should have known by now. Mostly contemporary art. The standout was Shihtiping by Tien-yu Hung (2017), a masterwork of color and impasto-esque brushstrokes that simulated the gushing of sea foam.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359926/website_images/2024/03/IMG_9672-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266473/IMG_9672-768x1024_nmhdhj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359781/website_images/2024/03/IMG_9674-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266473/IMG_9674-768x1024_dfnlxj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359819/website_images/2024/03/IMG_9675-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266474/IMG_9675-768x1024_s2cxq6.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9677-1024x768.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359802/website_images/2024/03/IMG_9680-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266474/IMG_9680-768x1024_faekaj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359857/website_images/2024/03/IMG_9681-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266474/IMG_9681-768x1024_odcgew.jpg)
 
 Frustratingly, there was no museum in Taiwan that showcased art from its aboriginal tribes. I would’ve been keener on educating myself about that.
 
@@ -373,9 +373,9 @@ So I decided to visit the miniscule Kaohsiung Hakka Cultural Museum. As the Han 
 
 On display were old farming clothes and tools. Their ancient career development model revolved around farming, attending public examination, and becoming a government official. They held traditional festivals and asked matchmakers for permission to marry. Their dialect featured at least eight accents.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359889/website_images/2024/03/IMG_9682-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266474/IMG_9682-768x1024_ib79gf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359712/website_images/2024/03/IMG_9683-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266474/IMG_9683-768x1024_y7xaxq.jpg)
 
 I dragged my suitcase all over Kaoshiung until I reached my hostel near the main station. Sidewalks in Kaohsiung were like narrow obstacle courses. Motorcycles, chairs, garbage cans, and whatnot. It was easier to walk on the road.
 
@@ -391,11 +391,11 @@ Dinner, for example, was an oyster omelette, a shrimp omelette, and a noodle sou
 
 At night, we viewed the cityscape from the Love Lookout on Shoushan Mountain. It was windy, among the coldest nights of the year, and 85 Sky Tower rose above the glitters of buildings. The adjacent Martyr's Shrine looked eerie in the dark.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359902/website_images/2024/03/IMG_9686-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266475/IMG_9686-768x1024_kl5vwy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359988/website_images/2024/03/IMG_9688-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266475/IMG_9688-768x1024_fqhbmi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359672/website_images/2024/03/IMG_9689-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266475/IMG_9689-768x1024_evxjaw.jpg)
 
 Talking to Teddy was still a struggle. The language barrier was palpable. But sometimes we simply gazed at the landscape or exchanged simple words. Good, yes, no. He even knew a few in Japanese. This did not turn our conversations barren; it just prevented them from unfolding to begin with.
 
@@ -405,11 +405,11 @@ We continued to Formosa Boulevard Station. The Dome of Light installation – th
 
 Outside the station, even at midnight, Liouhe night market was teeming with diners. It was the most popular and touristy night market in the city, stretching over a wide road. We ate takoyaki and a watermelon milk smoothie. And old man wearing a Stitch-like beanie with ears that reached his chest was handing out pamphlets.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359698/website_images/2024/03/IMG_9690-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266475/IMG_9690-768x1024_vtxhpq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359868/website_images/2024/03/IMG_9692-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266475/IMG_9692-768x1024_ovgvgu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359885/website_images/2024/03/IMG_9695-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266476/IMG_9695-768x1024_jvbqqm.jpg)
 
 At the market’s parking lot, we got into his car. Teddy removed his spectacles to wipe his eyes.
 
@@ -467,11 +467,11 @@ A solitary day of sightseeing. A return to form.
 
 I started with Sanfong temple, a less-known attraction with a canopy of lanterns straight out of Seoul in May. Lavish turtle origami offerings. I’d reached a stage where I’d gotten the hang of Taoist temples, however, and knew what to expect. From now on, only unusual ones would engage me.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360031/website_images/2024/03/IMG_9705-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266476/IMG_9705-768x1024_qoycxd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359955/website_images/2024/03/IMG_9706-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266476/IMG_9706-768x1024_vdjbuo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360040/website_images/2024/03/IMG_9712-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266476/IMG_9712-768x1024_rwmezv.jpg)
 
 Then, the Museum of History – yet another tiny, foreigner-unfriendly museum. I learned that Kaohsiung had grown from a sleepy fishing village into a (sleepy) international port. The Japanese had modernized it during the Occupation, transforming the lagoon into a harbour, and building a railway and a military fort thanks to its strategic locations. In the 1970s, its port had thrived into the largest in Taiwan.
 
@@ -479,23 +479,23 @@ Then, the Museum of History – yet another tiny, foreigner-unfriendly museum. I
 
 The Pier 2 art center was decorated with quirky sculptures, graffiti, and installations. Bright and vibrant warehouses turned hipster cafés and shops. I liked this atmosphere. Too many rainbows, though.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360046/website_images/2024/03/IMG_9716-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266476/IMG_9716-768x1024_hftidt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359840/website_images/2024/03/IMG_9718-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266477/IMG_9718-768x1024_jsarag.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359819/website_images/2024/03/IMG_9725-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266477/IMG_9725-768x1024_o5tpa3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359908/website_images/2024/03/IMG_9726-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266477/IMG_9726-768x1024_j8at0n.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359753/website_images/2024/03/IMG_9727-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266477/IMG_9727-768x1024_pkrscv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359937/website_images/2024/03/IMG_9728-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266478/IMG_9728-768x1024_oqiwk4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359667/website_images/2024/03/IMG_9729-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266478/IMG_9729-768x1024_bcolxv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359814/website_images/2024/03/IMG_9732-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266478/IMG_9732-768x1024_crhso3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359738/website_images/2024/03/IMG_9734-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266478/IMG_9734-768x1024_hbhqqp.jpg)
 
 ### Cijin Island
 
@@ -505,11 +505,11 @@ Once I continued past the market and escaped the crowds on this bustling Sunday,
 
 I ambled south along the shore to Rainbow Church – not a church, just a rainbow arch – and rested in front of the sea. People were drinking juice out of coconuts. Many visitors had rented bicycles or golf carts. A group of volunteers, mostly grandmas, was collecting trash from the beach.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359897/website_images/2024/03/IMG_9745-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266478/IMG_9745-768x1024_zr8yfa.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359660/website_images/2024/03/IMG_9746-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266479/IMG_9746-1024x768_wyzmpy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359867/website_images/2024/03/IMG_9751-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266479/IMG_9751-768x1024_kycy7t.jpg)
 
 I journaled on a bench and tried to make sense of last night. What was happening to me? I couldn’t fathom my own body.
 
@@ -517,17 +517,17 @@ Such misconduct was probably inevitable. Lately, woes had exceeded my slumber.
 
 Cihou fort commanded a view of the northern side of the market. Its rooms were sealed and abandoned. Yet the outlook it offered from atop the hill of the island and sea was beautiful. I watched the sunset from the beach, and took the ferry back to Kaoshiung.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359706/website_images/2024/03/IMG_9753-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266479/IMG_9753-768x1024_f2xi0m.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359812/website_images/2024/03/IMG_9754-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266479/IMG_9754-768x1024_i284vc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359882/website_images/2024/03/IMG_9756-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266479/IMG_9756-768x1024_zodara.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360002/website_images/2024/03/IMG_9762-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266480/IMG_9762-768x1024_gspulc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359986/website_images/2024/03/IMG_9765-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266480/IMG_9765-768x1024_tinfht.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360023/website_images/2024/03/IMG_9766-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266480/IMG_9766-768x1024_lqqg2t.jpg)
 
 Enough dating for a while, I resolved. I'd been thirsting for it so much, that it had become poison.
 

@@ -51,7 +51,7 @@ For breakfast, Teddy took me to a famous tofu pudding eatery in Anping, where I 
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9951-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359979/website_images/2024/03/IMG_9952-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266480/IMG_9952-768x1024_ddczi2.jpg)
 
 ### Huoshan Biyun Temple
 
@@ -145,7 +145,7 @@ The Buddhist gallery included gold statues of baby Siddhartha pointing to the sk
 
 Asian rugs and textiles, porcelain and animalistic vessels, tea vessels, gaming scroll paintings, and calligraphy completed the museum’s collection.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359853/website_images/2024/03/IMG_9971-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266481/IMG_9971-768x1024_u7x9f4.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9972-768x1024.jpeg)
 
@@ -205,17 +205,17 @@ They began with Alishan, a mountain known for its misty forest. With only three 
 
 Turning left by the temple led me to the biggest tree in Alishan, too monumental for my camera. Turning right led me murky woods canopied by giant cypress trees, home to the Sisters Pond – two dirty green and mystically serene pools.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359702/website_images/2024/03/IMG_0005-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266084/IMG_0005-768x1024_mcet8f.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359624/website_images/2024/03/IMG_0035-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266036/IMG_0035-768x1024_tvzjjj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359882/website_images/2024/03/IMG_0039-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266059/IMG_0039-768x1024_nzz6wh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360042/website_images/2024/03/IMG_0040-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266058/IMG_0040-768x1024_lq0unv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360030/website_images/2024/03/IMG_0044-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266037/IMG_0044-768x1024_glgjx6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359601/website_images/2024/03/IMG_0026-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266016/IMG_0026-768x1024_tptd5q.jpg)
 
 The water was quite low. In the summer, the ponds were actually fuller. Flies were sprinting on the water. Crickets and bird chirps completed this atmospheric scene, until a hoard of loud, elderly Taiwanese joined me.
 
@@ -223,11 +223,11 @@ Japanese people never yelled or played music audibly when hiking. Taiwan shared 
 
 Back by the temple, I tried some local specialties. A tea egg (delectably salty); Aiyu jelly drink (with tiny and delectable seeds, instead of tapioca). I wasn’t a fan of jelly, but the seeds added an incredible pop of texture. Finally, a dried tofu sandwich, stuffed with vegetables, egg, garlic, and wasabi.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359552/website_images/2024/03/IMG_0008-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266036/IMG_0008-768x1024_il1eau.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359937/website_images/2024/03/IMG_0047-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266016/IMG_0047-768x1024_tkar42.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359650/website_images/2024/03/IMG_0042-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266017/IMG_0042-768x1024_gqetbl.jpg)
 
 On my way back, it started drizzling. I bought oolong tea, since Alishan was the best place in Taiwan for it.
 
@@ -263,11 +263,11 @@ The Singaporean guy went to buy necessities at a nearby village with an elderly 
 
 At 18:00, I went to bed. The futons were so laid out so closely, that sometimes my legs touched my neighbors’. I was the first guest to go to sleep.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359663/website_images/2024/03/IMG_0051-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266037/IMG_0051-768x1024_oqd9de.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359641/website_images/2024/03/IMG_0052-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266018/IMG_0052-768x1024_sdxrrf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360025/website_images/2024/03/IMG_0053-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266018/IMG_0053-768x1024_m3mffr.jpg)
 
 **Today's highlights:** Sisters Pond trail; Alishan specilaties.
 
@@ -299,17 +299,17 @@ Half an hour into my ascent, my hands started tingling. Ants spread to my forear
 
 I was alone on the trail. In the absence of any interesting features, my mind wandered. I was 29. What had I accomplished with my existence? No book published, nor a lasting relationship. I couldn’t get another person to appreciate me as a writer or as a lover.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359838/website_images/2024/03/IMG_0059-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266019/IMG_0059-768x1024_ldueea.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359758/website_images/2024/03/IMG_0061-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266019/IMG_0061-768x1024_pjmtgp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359929/website_images/2024/03/IMG_0063-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266059/IMG_0063-768x1024_z2gmjz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359825/website_images/2024/03/IMG_0064-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266061/IMG_0064-768x1024_inlpwa.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359918/website_images/2024/03/IMG_0067-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266040/IMG_0067-768x1024_zshhlq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359746/website_images/2024/03/IMG_0071-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266086/IMG_0071-768x1024_jiiupb.jpg)
 
 At 8:45, at a pace too fast, I reached the midway point. Puddles on the ground became frozen. Wet, wooden platforms extended over gaps in the trail. My first encounter of another person was when people started descending two hours into my ascent.
 
@@ -323,9 +323,9 @@ Then I slipped on a wooden plank and hit the left side of my body, from my butto
 
 At 11:00, I reached Paiyun, a lot earlier than expected. So far, the trail wasn’t too bad.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359934/website_images/2024/03/IMG_0074-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266040/IMG_0074-768x1024_vqaesq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359620/website_images/2024/03/IMG_0078-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266040/IMG_0078-768x1024_qx2q92.jpg)
 
 ### Yu-shan's West Peak
 
@@ -335,33 +335,33 @@ The left side of my body hurt was more and more by the minute. My ears started r
 
 But I was on par with the clouds, with nothing but mountains filling the scenery, and not one sign of human civilization. Alone on a precipitous trail, on the edge of an abyss. This was my reason for coming here.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359707/website_images/2024/03/IMG_0081-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266040/IMG_0081-768x1024_upkplz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359869/website_images/2024/03/IMG_0083-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266020/IMG_0083-768x1024_ornuka.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359811/website_images/2024/03/IMG_0086-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266087/IMG_0086-768x1024_dfhhkp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359833/website_images/2024/03/IMG_0088-731x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266063/IMG_0088-731x1024_dr8trz.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_0089-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359704/website_images/2024/03/IMG_0096-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266021/IMG_0096-768x1024_osjkjn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359665/website_images/2024/03/IMG_0101-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266064/IMG_0101-768x1024_nbvmzg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359768/website_images/2024/03/IMG_0108-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266090/IMG_0108-768x1024_asc8xe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360043/website_images/2024/03/IMG_0110-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266065/IMG_0110-768x1024_dy2m0t.jpg)
 
 After one hour, I reached the peak (3,500 meters). The view was pleasant. There was a tiny Shinto shrine built by the Japanese. I mulled over my dating life and realized I was more perplexed than distressed. How had mutual liking ended in silence?
 
 I didn’t feel any emotion at that moment, just a cerebral puzzle. Maybe that was the problem.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359678/website_images/2024/03/IMG_0098-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266088/IMG_0098-768x1024_szssm9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359987/website_images/2024/03/IMG_0099-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266063/IMG_0099-768x1024_twgdsy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359641/website_images/2024/03/IMG_0102-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266064/IMG_0102-768x1024_m2ektd.jpg)
 
 ### Paiyun Lodge
 
@@ -381,9 +381,9 @@ I wished I were born a local who fit into the East. I hadn’t enjoyed Asians’
 
 Diner at 17:00 was the buffet that I needed. Bok choy salad, cauliflower, bean curd, mushroom soup, vegan sausage, fried tofu, and rice of course. The three meals and sleeping bag in Paiyun were justified and affordable.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359650/website_images/2024/03/IMG_0112-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266021/IMG_0112-768x1024_icexdg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359958/website_images/2024/03/IMG_0113-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266022/IMG_0113-768x1024_phrh6r.jpg)
 
 I ate by myself in a corner and continued to reminisce over Korea.
 
@@ -409,11 +409,11 @@ A clear, yellow line divided blushing orange and timid blue. Pink like rosy chee
 
 Maybe the problem was that I didn’t detest beaus who had distressed me. I might have moved on by now if I had. I wished I extinguished old flames instead of longing to rekindle them. I wished I loathed this world, as wonderful as it was ruthless.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359625/website_images/2024/03/IMG_0197-576x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266116/IMG_0197-576x1024_pmqfh4.png)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359830/website_images/2024/03/IMG_0123-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266013/IMG_0123-768x1024_gx3ovq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359725/website_images/2024/03/IMG_0125-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266013/IMG_0125-768x1024_qx35dx.jpg)
 
 I recalled my last night in Korea, spent with the hanok owner.
 
@@ -459,7 +459,7 @@ The sky turned blood orange as I went to bed at 18:45. I dressed in almost every
 
 Everyone in my room woke at 1:45. My left knee and buttock were aching. Breakfast at 2:00 was challenging to eat, because my fingers kept shaking from the cold.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359760/website_images/2024/03/IMG_0126-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266022/IMG_0126-768x1024_v2k4dq.jpg)
 
 I headed outside with a face mask and a neck warmer. The stars looked like silver linings in a ceiling of darkness. They were many but miniscule, not unlike human existence: a vast continuum of suffering, sprinkled by shining, fleeting joys.
 
@@ -471,17 +471,17 @@ The mountain was pitch-black. Our flashlights were the only source of illuminati
 
 It was like traversing a frigid vacuum. Rock slides yesterday had made the terrain difficult to surmount. We climbed very slowly, stopping every now and then to catch our breath. The temperature was freezing, and the altitude was above 3,500 meters. My nose was running underneath my mask.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359823/website_images/2024/03/IMG_0134-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266023/IMG_0134-768x1024_mfo7xs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359778/website_images/2024/03/IMG_0135-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266023/IMG_0135-768x1024_awngly.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359918/website_images/2024/03/IMG_0137-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266023/IMG_0137-768x1024_k7hopy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359656/website_images/2024/03/IMG_0138-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266024/IMG_0138-768x1024_mzfyve.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359904/website_images/2024/03/IMG_0143-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266013/IMG_0143-768x1024_lksfpw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359862/website_images/2024/03/IMG_0144-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266014/IMG_0144-768x1024_nf0ys1.jpg)
 
 After an hour, we reached an exposed terrain. A frosty breeze was blowing; icicles started forming. Mountain silhouettes were indiscernible in the landscape, like a black mass.
 
@@ -497,11 +497,11 @@ The Singaporean seemed even more apprehensive than me. We progressed ever so slo
 
 A yellow line was illuminating a sea of clouds deep beneath us, stretching all the way to the horizon. Just like on Fuji-san, except with snow.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359697/website_images/2024/03/IMG_0142-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266043/IMG_0142-768x1024_tgjbjq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359713/website_images/2024/03/IMG_0146-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266024/IMG_0146-768x1024_v4b6p4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359884/website_images/2024/03/IMG_0147-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266014/IMG_0147-768x1024_rmtfwm.jpg)
 
 Birds broke into song. It astounded me how quickly the sun rose. In the blink of an eye, the orange complexion of the sky was gone.
 
@@ -511,27 +511,27 @@ Birds broke into song. It astounded me how quickly the sun rose. In the blink of
 
 I had zero trouble breathing, thanks to my altitude sickness pills. Wind was making me shiver. But the view was worth it. Perfect visibility of an endless mountain range and green valleys. I was on top of the world.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359805/website_images/2024/03/IMG_0152-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266025/IMG_0152-768x1024_iontkc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359971/website_images/2024/03/IMG_0167-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266014/IMG_0167-768x1024_oqvuwz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359985/website_images/2024/03/IMG_0174-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266027/IMG_0174-768x1024_nqgs7n.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359680/website_images/2024/03/IMG_0175-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266027/IMG_0175-768x1024_twderm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359882/website_images/2024/03/IMG_0169-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266027/IMG_0169-768x1024_trdj56.jpg)
 
 At 7:00, we started down, until brunch at Paiyun at 8:45. A helicopter flew past the lodge to rescue the corpses of a Taiwanese couple who had gone missing last week. They’d never returned from the south peak.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359797/website_images/2024/03/IMG_0178-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266045/IMG_0178-768x1024_mfkwwk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359647/website_images/2024/03/IMG_0181-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266028/IMG_0181-768x1024_kfyfcl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359635/website_images/2024/03/IMG_0186-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266028/IMG_0186-768x1024_yhubii.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360034/website_images/2024/03/IMG_0187-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266046/IMG_0187-768x1024_vskvuo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359824/website_images/2024/03/IMG_0189-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266028/IMG_0189-768x1024_vvndqj.jpg)
 
 ### Back to Dongpu
 
@@ -539,11 +539,11 @@ After a short rest, we left Paiyun at 10:00. The Singaporean’s pace was so sna
 
 The way down felt infinite and boring. We passed porters climbing with dozens of boxes on their backs.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360039/website_images/2024/03/IMG_0190-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266076/IMG_0190-768x1024_grkcyu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359633/website_images/2024/03/IMG_0191-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266046/IMG_0191-768x1024_ssf60w.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359945/website_images/2024/03/IMG_0193-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266101/IMG_0193-768x1024_fn8q6m.jpg)
 
 At 14:00, the torture ended. My shoulders had crumbled; my left knee was outraged. I despised carrying all this weight on my back, despised humdrum trails. My muscles were begging for a smelly onsen.
 

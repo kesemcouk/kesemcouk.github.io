@@ -76,7 +76,7 @@ I grabbed a piece of fresh lettuce. Leeshy gawked at me.
 
 I gawked at her in return.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360288/website_images/2024/02/IMG_8385-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266402/IMG_8385-768x1024_v0m2nu.jpg)
 
 After this unexpectedly delicious lunch, I took the MRT to a nearby mountain, to take advantage of my day off.
 
@@ -88,25 +88,25 @@ The trail was half paved inside a forest. A lot of bird sounds and airplanes. Ha
 
 Then the fun part started: using ropes to rock climb. The ropes disappeared later on, when the trail got less steep. I jumped from boulder to boulder, until I made it to the summit.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360421/website_images/2024/02/IMG_8389-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266403/IMG_8389-768x1024_ykdmzf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360472/website_images/2024/02/IMG_8399-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266403/IMG_8399-768x1024_gjqxxc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360489/website_images/2024/02/IMG_8403-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266403/IMG_8403-768x1024_jounyx.jpg)
 
 A pile of exposed boulders on the edge of a cliff. Beautiful and breezy. It felt like a ball pit made of giant stones. A short yet exciting trail, accessible from the city, easily surmounted in an afternoon. Once again, a Seoul-filled déjà vu.
 
 I stayed on the summit for 1.5 hours to soak up this view. Forests, boulders, buildings, airplanes flying over the 101 in the distance. Grey and misty, the sky was a shy blue.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360563/website_images/2024/02/IMG_8404-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266403/IMG_8404-768x1024_h8ivid.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360261/website_images/2024/02/IMG_8412-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266403/IMG_8412-768x1024_hnoavb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360549/website_images/2024/02/IMG_8417-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266404/IMG_8417-768x1024_w2zdrq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360538/website_images/2024/02/IMG_8422-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266404/IMG_8422-1024x768_d2t2bh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360356/website_images/2024/02/IMG_8435-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266405/IMG_8435-768x1024_hkkzeq.jpg)
 
 Trails like this were a priceless advantage of Seoul and Taipei over Tokyo. One simply didn’t have rapid access to a variety of mountains with city views. Let alone mountains with thrilling rock climbing (Gwanak-san, Bukhan-san, and this one, to name a few).
 
@@ -126,7 +126,7 @@ I’d always known exactly what I wanted out of life, and where. Suddenly, I fel
 
 For my way down the mountain, I picked the Lane 136, Section 1, Huanshan Road trail, for a direct view of the setting sun. Yesterday, it had shone like a ball of plasma. Tonight, it resembled a sphere of magma. The sky was more orange than pink.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360329/website_images/2024/02/IMG_8445-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266405/IMG_8445-768x1024_ppllud.jpg)
 
 Crickets came to life as I descended the trail alone at dusk. The metro back home, as crowded as Tokyo’s, gave me my first rush hour in Taiwan. Somehow, it was still quiet.
 
@@ -208,9 +208,9 @@ In our avid stroll, we stumbled upon Bopiliao Historical Block, one of the oldes
 
 Then, we saw a vending cart with a man cooking rice puffs. Basically, the Far Eastern (and superior) version of popcorn. It tasted light and delicious, with just a hint of sweet. Heron treated me to a large bag, because I hadn’t brought my wallet.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360333/website_images/2024/02/IMG_8452-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266405/IMG_8452-768x1024_sjklxe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360454/website_images/2024/02/IMG_8453-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266405/IMG_8453-768x1024_zxbppd.jpg)
 
 He seemed as well-read as he was awkward. I wanted to continue talking for hours. But he had dinner plans.
 
@@ -242,7 +242,7 @@ It was nice to see a familiar face. He showed me another side to the club, where
 
 An hour later, I left the bar satisfied and crossed bright yet quiet Ximen, hopeful that I would never have a bad outgoing in Taiwan.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360302/website_images/2024/02/IMG_8458-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266406/IMG_8458-768x1024_unbsty.jpg)
 
 **Today's highlights:** lunch at the hostel; a geeky afternoon with Heron; rice puffs; the bar at night.
 
@@ -266,7 +266,7 @@ We raced through Zhongxiao Bridge and a stream of scooters. There were so many o
 
 The view over Taipei was just as rewarding.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360323/website_images/2024/02/IMG_8460-767x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266406/IMG_8460-767x1024_gyiupw.jpg)
 
 ### Taipei Fine Arts Museum
 
@@ -280,15 +280,15 @@ What was artistic about a recording of a cheetah chasing prey? About canvases wi
 
 I liked a couple of dark rooms, one with neon psychedelic drawings, another with a black inflatable maze that seemed more horror-movie-playground than art.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360535/website_images/2024/02/IMG_8463-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266406/IMG_8463-768x1024_cqffsz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360246/website_images/2024/02/IMG_8466-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266406/IMG_8466-768x1024_ijvjf1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360249/website_images/2024/02/IMG_8471-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266407/IMG_8471-768x1024_zqp9xn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360399/website_images/2024/02/IMG_8468-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266406/IMG_8468-768x1024_wcesuo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360430/website_images/2024/02/IMG_8469-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266407/IMG_8469-768x1024_lwmp29.jpg)
 
 Then I heard a song playing on a screen. “Moonlight Serenade” was the name of this adaptation of a classic film song called “Sayon Bell”. It was a sad torch song about a person confused by the emotions in their heart, unable to tell love and nervousness apart.
 
@@ -320,9 +320,9 @@ I doubted any venue in Japan or Korea could recreate that.
 
 We grabbed drinks. The conversation flowed quite well. Around us, the packed bar was getting steamy. To my surprise, it was BDSM-themed.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360387/website_images/2024/02/IMG_8455-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266405/IMG_8455-768x1024_b72irc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360307/website_images/2024/02/IMG_8476-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266407/IMG_8476-768x1024_r0wtj0.jpg)
 
 I saw things one wasn’t supposed to see in public, including two guys who were chatting as casually as possible while being stark naked.
 
@@ -366,9 +366,9 @@ We spoke both English and Japanese, taking advantage of the opportunity to pract
 
 We wandered around Ximen in search of food. ‘Meatless’ posed quite the challenge. We found a small locals' spot where we ate yang chun mian – simple noodles. When I tried to pay him back, he pretended to not understand English.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360517/website_images/2024/02/IMG_8477-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266407/IMG_8477-768x1024_kjdixc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360327/website_images/2024/02/IMG_8478-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266407/IMG_8478-768x1024_gsdwji.jpg)
 
 He was preparing for his working holiday in New Zealand starting next month. We were in a similar boat, only a year apart, escaping the countries we disliked to a culture as far away as possible. I hadn’t been to the East before this trip, nor had he been to the West.
 
@@ -392,31 +392,31 @@ Downstairs, inside the museum I listened to his explanations, instead of reading
 
 As a rightfully popular attraction not too far from Ximen, I understood why people came here to relax at the square. Today was particularly breathtaking, with a perfect blue sky, the white gate, yellow roofs, and well-maintained gardens. These colors were so vivid, that I felt like I was looking at an edited photo through VR glasses. It was one of the most attractive urban sites I'd seen.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360533/website_images/2024/02/IMG_8480-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266408/IMG_8480-1-768x1024_qgmsfl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360444/website_images/2024/02/IMG_8482-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266408/IMG_8482-1-1024x768_teglw8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360252/website_images/2024/02/IMG_8485-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266408/IMG_8485-1-768x1024_pracxu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360488/website_images/2024/02/IMG_8486-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266408/IMG_8486-1-768x1024_pshqzp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360559/website_images/2024/02/IMG_8489-1-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266408/IMG_8489-1-770x1024_tdo9cy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360503/website_images/2024/02/IMG_8491-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266409/IMG_8491-1-768x1024_hkl78o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360233/website_images/2024/02/IMG_8493-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266409/IMG_8493-1-768x1024_exlqpt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360539/website_images/2024/02/IMG_8499-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266409/IMG_8499-1-768x1024_ny1qzq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360229/website_images/2024/02/IMG_8500-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266410/IMG_8500-1-768x1024_w3putn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360312/website_images/2024/02/IMG_8494-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266409/IMG_8494-1-768x1024_hkfjvi.jpg)
 
 We took the MRT back to Ximen, where we found his favorite street food snack – digua qiu, fried potato balls.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360463/website_images/2024/02/IMG_8503-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266410/IMG_8503-1-768x1024_vfqhrk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360495/website_images/2024/02/IMG_8504-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266410/IMG_8504-1-1024x768_yxjvgo.jpg)
 
 ### Lunar New Year's Feast
 
@@ -426,11 +426,11 @@ Unagi rice; entire shrimps; pork spring rolls; yam balls; lion head mushrooms; a
 
 But I knew many of these were traditional New Year’s dishes, and I cherished my decision to come to Taiwan, to Ximen, to this hostel, and become the recipient of such delicacies and cordiality.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360356/website_images/2024/02/IMG_8506-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266410/IMG_8506-1-768x1024_pkf5gw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360320/website_images/2024/02/IMG_8507-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266411/IMG_8507-1-768x1024_c9tcog.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360337/website_images/2024/02/IMG_8510-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266410/IMG_8510-1-768x1024_yqevcs.jpg)
 
 The whole time, the manager was snapping a gazillion photos of us (a habit of hers - her phone must hold the storage capacity of a supercomputer), and created an embarrassingly cute video of it.
 

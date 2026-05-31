@@ -93,9 +93,9 @@ It was a stroke of luck that changed my mind about tonight. To my surprise, he w
 
 At 23:00, Bob and I scoured Ximen for some street food. I found an omelet radish cake so tender, that I wolfed it down while still hot. Then I stumbled across a stand selling fried quail eggs on a skewer. Just as decadent. The onion dumplings I finished with were okay.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360398/website_images/2024/02/IMG_8689-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266427/IMG_8689-768x1024_if8lx6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360249/website_images/2024/02/IMG_8690-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266428/IMG_8690-768x1024_f5wvj2.jpg)
 
 **Today’s highlight**: Ximen street food.
 
@@ -119,9 +119,9 @@ It was a blue day, and all the colors around me glittered under the sun: the sea
 
 Tamsui was also heinously crowded on New Year’s holiday, with a flood of picnickers, tourists, and people lounging under the shade of giant trees, watching the sea and musical performances.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360518/website_images/2024/02/IMG_8696-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266428/IMG_8696-768x1024_ntlrfp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360461/website_images/2024/02/IMG_8698-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266428/IMG_8698-768x1024_deneix.jpg)
 
 Complete standstills. It would’ve taken me an hour to buy a skewer of fried squid. I decided to take the bus to my next destination.
 
@@ -131,17 +131,17 @@ Wuji Tianyuan temple, on a hill north of Tamsui, seemed fairly standard. I climb
 
 It was past the peak. The lower branches were already naked. Tiny pink and white petals embellished treetops, yet the quantity, vividness, and size of these could not hold a candle to Japan. One row of half a dozen trees. Today was the height of the temple’s cherry blossom festival.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360329/website_images/2024/02/IMG_8699-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266428/IMG_8699-768x1024_v7t20l.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360379/website_images/2024/02/IMG_8703-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266428/IMG_8703-768x1024_nvkk4y.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360420/website_images/2024/02/IMG_8706-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266429/IMG_8706-768x1024_ku4osb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360560/website_images/2024/02/IMG_8708-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266429/IMG_8708-768x1024_kvnnkb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360357/website_images/2024/02/IMG_8717-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266429/IMG_8717-768x1024_q0w8iw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360492/website_images/2024/02/IMG_8718-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266429/IMG_8718-768x1024_hahyjg.jpg)
 
 So I entered the pagoda instead. A massive, five-tiered cylinder painted white, yellow, and brown, it was nicknamed the Altar of Heaven. Each floor featured sculptures of deities that got holier and holier.
 
@@ -151,11 +151,11 @@ In the absence of explanations and a reliable Taoist friend, I focused instead o
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/02/IMG_8744-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360455/website_images/2024/02/IMG_8748-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266429/IMG_8748-768x1024_mdv9zn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360532/website_images/2024/02/IMG_8752-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266430/IMG_8752-768x1024_hb3m4f.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360304/website_images/2024/02/IMG_8754-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266430/IMG_8754-768x1024_lqzkg5.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/02/IMG_8756-768x1024.jpeg)
 
@@ -163,7 +163,7 @@ In the absence of explanations and a reliable Taoist friend, I focused instead o
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/02/IMG_8759-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360392/website_images/2024/02/IMG_8760-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266430/IMG_8760-768x1024_r9lacc.jpg)
 
 I’d come to Wuji Tianyuan expecting to be wowed by cherry blossoms, and instead got a never-before-seen pagoda offering an explosion of color, patterns, and beams. The spectacular view improved after I waited half and hour inside the top floor for sunset. The sky blushed, the air darkened, and the Altar lit up. I couldn’t stop gawking at the heavens, a grand gradient of maroon to orange.
 

@@ -40,11 +40,11 @@ We continued across the northern coast of the Chugoku region. I spotted the sand
 
 Then, in less than an hour, we reached the South Korean coast. The landscape seemed similar, yet the mountains were shorter.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364933/website_images/2023/06/img_7383-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266098/img_7383-1024x768_qp5gtd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364923/website_images/2023/06/img_7391-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266098/img_7391-1024x768_upohnv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364745/website_images/2023/06/img_7394-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266098/img_7394-768x1024_qy5sjt.jpg)
 
 ### Incheon Airport
 
@@ -66,7 +66,7 @@ No, this was won. Only 260 yen or so. For an express train.
 
 God, Japan was expensive.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364730/website_images/2023/06/img_7403-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266580/img_7403-1_yooif9.jpg)
 
 The ride was breathtaking. Green everywhere. Clear sky. Not too hot. A few hours ago, I was crying. Now, I smiled.
 
@@ -174,17 +174,17 @@ So I waited and waited near my desired photo op and asked two French girls, who 
 
 We chatted for a long time. They gave me some tips (turned out I could’ve gotten an even better deal for a SIM card…), and taught me a heart pose using the arms that was popular in Korea.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361949/website_images/2023/06/img_7421-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266555/img_7421-1_lb7gpr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364797/website_images/2023/06/img_7447.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266559/img_7447_jrfnwf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364784/website_images/2023/06/img_7443.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266525/img_7443_cwd5p4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361939/website_images/2023/06/img_7438-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266505/img_7438-1_xymi2i.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364755/website_images/2023/06/img_7451.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266572/img_7451_qjwv60.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364902/website_images/2023/06/img_7463.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266568/img_7463_qy8ol7.jpg)
 
 Afterwards, I strolled around the city, beholding more and more shops.
 
@@ -196,11 +196,11 @@ So far navigating the metro was a lot easier compared to Osaka or Tokyo. None of
 
 At Nowon station, I was again attacked by intoxicating scents, wafting toward me around the ticket gate. I caved in and bought seven mini taiyakis for the price of a regular one in Japan.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364846/website_images/2023/06/img_7411-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266553/img_7411-1_xyl5ks.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364819/website_images/2023/06/img_7470.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266501/img_7470_fzcpoe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364831/website_images/2023/06/img_7471.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266503/img_7471_ye7dhm.jpg)
 
 I returned to my host’s studio in the afternoon. She wasn’t there. A couple of hours later, while using my extremely limited data on my new SIM, she texted me that she would be staying at her hometown outside Seoul tonight, and that she’d see me tomorrow.
 
@@ -294,17 +294,17 @@ Walking around the ground, I ran into the French girls from this morning. Then I
 
 I continued to a pond with weeping trees, where a tree with red foliage made me think it was fall, and the greenhouse, where I found a bunch of bonsai and sweet fragrances from exotic plants. I met an English girl in a golden hanbok, and heard a bird make the oddest cry while talking to her.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364934/website_images/2023/06/img_7488.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266586/img_7488_ao5ns2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364746/website_images/2023/06/img_7519.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266554/img_7519_yqi4va.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364914/website_images/2023/06/img_7570.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266571/img_7570_w789he.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364742/website_images/2023/06/img_7525.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266519/img_7525_yws7sm.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/06/img_7532.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364885/website_images/2023/06/img_7528.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266578/img_7528_pfx0px.jpg)
 
 ### Changdeuk-gung Palace and the Secret Garden
 
@@ -344,17 +344,17 @@ She didn’t have much of an answer, either.
 
 After talking for some time, I left the garden. The entire time I was there, I could hear loud pop music. A concert was probably being held nearby.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364774/website_images/2023/06/img_7496.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266508/img_7496_ouxjfe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364937/website_images/2023/06/img_7561.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266489/img_7561_xu9y2u.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361956/website_images/2023/06/img_7552.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266511/img_7552_jzsiud.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/06/img_7587.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364909/website_images/2023/06/img_7607.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266569/img_7607_kqux3o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361975/website_images/2023/06/img_7624.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266537/img_7624_eoajjw.jpg)
 
 ### Digital Detox
 

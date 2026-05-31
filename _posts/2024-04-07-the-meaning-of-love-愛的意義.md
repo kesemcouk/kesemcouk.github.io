@@ -85,7 +85,7 @@ Then I reached the Golden Waterfall, which seemed more brown in today’s overca
 
 From there, I continued to an observation pavilion to the Remains of the 13 Levels, an abandoned mining plant overlooking the ocean. It seemed interesting, but not worth coming all this way, which was hard without a car. Plus, it was no longer accessible, nor would I venture into it in case of an aftershock.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360114/website_images/2024/04/IMG_1034-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266071/IMG_1034-768x1024_ao6mij.jpg)
 
 ### Jiufen Old Street
 
@@ -97,17 +97,17 @@ The famous herbal rice cake and taro cake didn’t thrill me, nor did the local 
 
 The narrow alleys with lanterns were romantic, especially at dusk, yet too crowded and touristy. Evidently, the earthquake had deterred no one. The stone stairs down to Amei teahouse were nearly a standstill, with a long line to snap photos of the famous exterior. As exasperated as I was by this choice of a final attraction on this trip, I ought to admit that the façade glittered beautifully.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360086/website_images/2024/04/IMG_1045-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266043/IMG_1045-768x1024_yfineo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360089/website_images/2024/04/IMG_1046-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266044/IMG_1046-768x1024_vtnref.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360105/website_images/2024/04/IMG_1047-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266072/IMG_1047-768x1024_yvfone.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360090/website_images/2024/04/IMG_1051-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266044/IMG_1051-768x1024_jndmtf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360118/website_images/2024/04/IMG_1057-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266044/IMG_1057-768x1024_ku1y5k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360141/website_images/2024/04/IMG_1063-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266072/IMG_1063-768x1024_lrcufj.jpg)
 
 ### A Magnetic Date
 

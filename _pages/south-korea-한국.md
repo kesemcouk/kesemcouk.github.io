@@ -9,7 +9,7 @@ category: south-korea
 series_type: travel-logs
 ---
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360193/website_images/2024/05/South-Korea-1.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266487/South-Korea-1_ocbaku.png)
 
 ### 28 posts (26 chapters, 2 poems)
 

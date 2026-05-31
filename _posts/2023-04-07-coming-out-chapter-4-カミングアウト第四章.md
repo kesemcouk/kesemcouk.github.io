@@ -23,7 +23,7 @@ In chapter 4, I...
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361842/website_images/2023/01/Chapter-4-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266016/Chapter-4-picture-1-768x1024_ltsivm.jpg)
     
     <figcaption>
     
@@ -35,7 +35,7 @@ In chapter 4, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361776/website_images/2023/01/Chapter-4-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266009/Chapter-4-picture-2-768x1024_jgft0i.jpg)
     
     <figcaption>
     
@@ -47,7 +47,7 @@ In chapter 4, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361820/website_images/2023/01/Chapter-4-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266016/Chapter-4-picture-3-768x1024_c0eqgc.jpg)
     
     <figcaption>
     
@@ -59,7 +59,7 @@ In chapter 4, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361819/website_images/2023/01/Chapter-4-picture-4-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266018/Chapter-4-picture-4-768x1024_qsxl5i.jpg)
     
     <figcaption>
     

@@ -55,11 +55,11 @@ The ferry docked, and the guests departing to Wakkanai boarded. We waved goodbye
 
 The guests grinned and waved back and, as the ferry departed, yelled back.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361458/website_images/2023/09/img_3045-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266501/img_3045-1_kk4kcq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361376/website_images/2023/09/img_3046-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266490/img_3046-1_r9ascy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361622/website_images/2023/09/img_2977-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266493/img_2977-1_ee9wtu.jpg)
 
 After two days of clouds constantly engulfing Mt Rishiri’s summit, today the tip was completely in the clear. The sea was sparkling, the ship was growing smaller and smaller, yet the guests’ shouts were still audible, despite the distance.
 
@@ -89,11 +89,11 @@ At 11:30.
 
 Instead, we both ordered a hokke kamaboko (basically, a fried fish ball – delicious), and ramen with okaka (finely chopped bonito flakes) and thick noodles and soy sauce.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361431/website_images/2023/09/img_2985-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266541/img_2985-1_ejoipq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361493/website_images/2023/09/img_2992-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266530/img_2992-1_gp9g4g.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361534/website_images/2023/09/img_2994-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266504/img_2994-1_qamjnj.jpg)
 
 ### Himenuma Pond
 
@@ -107,13 +107,13 @@ I bought a Pikachu pastry instead and ate it in Himenuma pond, a five-minute dri
 
 We strolled along the twenty-minute path that circled the pond and then drove southwest to a sweets shop. A kuma bamboo grass pudding as a consolation prize for the shop being all out of Rishiri island’s famous water.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361251/website_images/2023/09/img_2999-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266573/img_2999-1_txkdaf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361445/website_images/2023/09/img_3002-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266591/img_3002-1_whivfo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361433/website_images/2023/09/img_3049-1-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266099/img_3049-1-576x1024_n67a9h.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361291/website_images/2023/09/img_3047-1-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266074/img_3047-1-1024x576_enyvug.jpg)
 
 ### Shiroi Koibito Hill
 
@@ -125,17 +125,17 @@ The ojiisan and I marvelled at our view. The mountain and a nearby pond. Wakkana
 
 I’d visited the company’s factory in Sapporo on February 17, but hadn’t tried their chocolate myself, shipping it to my family instead. I had to try it upon my return to Sapporo.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361626/website_images/2023/09/img_3016-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266588/img_3016-1_bph3ar.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361330/website_images/2023/09/img_3018-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266502/img_3018-1_ugzrkv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361292/website_images/2023/09/img_3021-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266556/img_3021-1_lsfh7a.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361269/website_images/2023/09/img_3023-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266562/img_3023-1_u4zizz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361351/website_images/2023/09/img_3027-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266554/img_3027-1_gzphyi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361661/website_images/2023/09/img_3034-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266517/img_3034-1_gywnam.jpg)
 
 Back to the car. Every time we got into the car, I practically dozed off. I could not keep my eyes open.
 
@@ -145,11 +145,11 @@ We continued to a park that wasn’t really a park – just a cliff. I saw gigan
 
 Rishiri island’s mountain water was as clean as it was cold. Just like the water I’d drunk in February in Kawayu Onsen. Top notch.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361495/website_images/2023/09/img_3031-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266540/img_3031-1_jvzqom.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361609/website_images/2023/09/img_3032-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266591/img_3032-1_leun2f.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361313/website_images/2023/09/img_3038-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266585/img_3038-1_uymekb.jpg)
 
 ### Fureai Onsen
 
@@ -191,15 +191,15 @@ He insisted on paying. I didn’t even want to know how much the meal cost.
 
 At 18:30, he dropped me off at my accommodation, with an invitation to visit him in Meguro someday. I checked into my huge, private tatami room, which explained the price, and wrote until 22:00. What an exciting, expensive, and exhausting three days.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361381/website_images/2023/09/img_3039-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266498/img_3039-1_pxia2v.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361297/website_images/2023/09/img_3040-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266509/img_3040-1_oyf3ol.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/09/img_3041-1-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361505/website_images/2023/09/img_3051-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266099/img_3051-1-1024x768_fuvsrk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361607/website_images/2023/09/img_3044-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266074/img_3044-1-768x1024_kql9zn.jpg)
 
 **Today's highlights:** waving the hostel flag and performing the daily ceremony at the ferry terminal; hokke kamaboko; eating Pikachu at Himenuma pond; kuma bamboo grass pudding; the view from Shiroi Koibito hill; using a water fountain by the road; the onsen; everything I ate for dinner.
 
@@ -253,11 +253,11 @@ I didn’t know if I’d ever get over the heartbreaks I’d experienced on this
 
 My present moment exemplified this all the more. There was something about glittering waves splashing foam against a ship as I grew farther and farther apart from an island awash with green. Ferries made life feel grand. Even when they made me vomit.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361688/website_images/2023/09/img_3055-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266522/img_3055-1_omivij.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361608/website_images/2023/09/img_3053-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266524/img_3053-1_qtajh0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361543/website_images/2023/09/img_3056-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266513/img_3056-1_lmbgbi.jpg)
 
 I spent the hour I had between the ferry and long-distance bus inside Wakkanai station, writing and checking my messages. I was hungry, but didn’t feel like eating.
 
@@ -277,7 +277,7 @@ The ramen was piping hot. Probably my most scalding one ever. Everyone around me
 
 Rather than throwing it away, I ate the slice of pork that I was served. I could tell that it was fresh, being thinly cut and not at all dry. But I did not care for it. As bad as I felt for eating meat, my lack of pleasure derived from it was somewhat of a relief.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361370/website_images/2023/09/img_3065-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266521/img_3065-1_cnvbq6.jpg)
 
 Afterwards, I went to Donki to buy a charger for my phone, which I’d lost. Cowboy was leaving his apartment to work the graveyard shift. Yet he invited me to spend the night there, and see him in the morning.
 

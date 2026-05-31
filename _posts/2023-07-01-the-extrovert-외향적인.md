@@ -47,17 +47,17 @@ I’d never done something like this, and it gave me such a rush – such a thri
 
 And the view only amplified all this to a moment of bliss.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364797/website_images/2023/06/img_8360.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266551/img_8360_x50xby.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364832/website_images/2023/06/img_8351.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266592/img_8351_jyjhgb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364768/website_images/2023/06/img_8363.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266552/img_8363_eneqvt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364744/website_images/2023/06/img_8370.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266572/img_8370_oungwf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364851/website_images/2023/06/img_2040.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266568/img_2040_ahlrcu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364813/website_images/2023/06/img_2052.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266515/img_2052_xikmyl.jpg)
 
 We made it to the peak at 12:30. There wasn’t a line at any point. In Gwakansan, during the weekend, I waited thirty minutes in line.
 
@@ -73,17 +73,17 @@ Wild cats arrived at some point. All in different colors, with green eyes. A pac
 
 I talked to a couple of Arabs from Jerusalem who suspected I was Israeli. Their family was deported from Mahne Yehuda after 1967, and now they lived in Bristol.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364760/website_images/2023/06/img_8401.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266558/img_8401_azxv4j.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364755/website_images/2023/06/img_8402.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266596/img_8402_fx13al.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364852/website_images/2023/06/img_2068.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266527/img_2068_lnnu0i.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364847/website_images/2023/06/img_2115.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266562/img_2115_fzfflr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364810/website_images/2023/06/img_2116.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266567/img_2116_thvps6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364885/website_images/2023/06/img_2120.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266561/img_2120_xef02k.jpg)
 
 After one hour like this, at 13:30, things got crowded. We started our way down – even harder than going up – and saw an old Korean man hiking barefoot.
 
@@ -107,7 +107,7 @@ After yet another desperate scour at the nearby convenience store for meatless f
 
 It was the hip student nightlife neighborhood in Seoul. The trendiest place to party. Relatively lively, despite it being a Wednesday night. Mostly foreigners though.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364916/website_images/2023/06/img_8481.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266509/img_8481_tadt8c.jpg)
 
 First, preliminary convenience store drinks at a park where people gathered for pre-game. Two old drunk guys were shouting and playing a horn not unlike the Jewish Shofar. Never, ever, ever in Japan.
 
@@ -257,7 +257,7 @@ Then we noticed the time.
 
 The Spanish guy and I said a premature goodbye to the girls (who would fly to Japan in two days) and rushed back to the hostel.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364935/website_images/2023/06/img_6769-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266105/img_6769-1024x768_kvnjfi.jpg)
 
 “My Luigi,” he said, as we embraced.
 
@@ -325,7 +325,7 @@ But I made it to the apartment. My host’s uncle let me in, no questions asked.
 
 It was huge, and my room was big. Mattress again like a thin blanket. The blanket itself was actually five times thicker than the mattress. I asked the uncle if I could borrow a phone charger. He said he had allergies, and didn’t touch things touched by others.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361967/website_images/2023/06/img_8502.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266534/img_8502_snrl68.jpg)
 
 After a few tense minutes of deliberating whether to look for a convenience store, I recalled I’d packed a spare charger with me before leaving Israel, back in February.
 

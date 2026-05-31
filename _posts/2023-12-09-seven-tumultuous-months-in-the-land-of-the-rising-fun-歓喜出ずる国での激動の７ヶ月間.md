@@ -142,11 +142,11 @@ One of her cats pounced at my back and stuck his claws into my shoulders.
 
 My private room was half the size of a Tokyo apartment, featuring a heated bedsheet.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365107/website_images/2023/12/img_6141.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266534/img_6141_dbshxs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365025/website_images/2023/12/img_6314.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266520/img_6314_kqs146.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364982/website_images/2023/12/img_6313.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266549/img_6313_fgste3.jpg)
 
 **Today's highlights:** cheese and egg squid okonomiyaki plus takoyaki for breakfast; my first kimono and haori; the Yokai festival with all the expats; the late lunch with the expats.
 
@@ -172,7 +172,7 @@ Today should’ve been a day trip to one of two locations, both of which turned 
 
 Instead, Ray drove us for five minutes at 10:00 to her teahouse in north Gion, a ten-minute walk from Yasaka shrine. It was full of cloud decorations and pillows; the walls were painted sky blue.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364951/website_images/2023/12/img_6288.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266492/img_6288_zenp6y.jpg)
 
 I worked feverishly on my computer for 4.5 straight hours, possessed by thoughts about the future. A lot of planning and research (that later got deleted – thanks, computer).
 
@@ -190,25 +190,25 @@ The torii tunnel was as crowded as it got. I climbed for half an hour to the obs
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6150.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365145/website_images/2023/12/img_6153.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266531/img_6153_wpfb3m.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6178.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6192.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364997/website_images/2023/12/img_6202.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266559/img_6202_yw0suy.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6207.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6208.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365124/website_images/2023/12/img_6220.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266535/img_6220_gnbiso.jpg)
 
 Crossing darkening torii tunnels all by myself was the exact atmosphere I’d hoped for. Twilight made everything more majestic. Quiet, mysterious, eerie; shadowy zigzags on the floor in-between gates. A sight more impressive (and devoid of tourists) than in morning.
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6231.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365189/website_images/2023/12/img_6246.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266523/img_6246_njnxlz.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6255.jpg)
 
@@ -220,7 +220,7 @@ Crossing darkening torii tunnels all by myself was the exact atmosphere I’d ho
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6281.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365177/website_images/2023/12/img_6284.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266510/img_6284_xtpdjb.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6271.jpg)
 
@@ -246,7 +246,7 @@ One of my couchsurfing hosts from Seoul, who had hosted me in mid-May, was no di
 
 And now, Ray.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364959/website_images/2023/12/img_6289.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266507/img_6289_iiwkja.jpg)
 
 Why did I keep meeting such people? Because I was the same?
 
@@ -304,11 +304,11 @@ I woke at 7:00, regretting every moment of no sleep. The Taiwanese uncle from Ta
 
 To my enjoyment, the couchsurfing couple joined me. We grabbed donuts from Starbucks (butterscotch!) and I got to show them a non-touristy, rural side to the city. The red carpet resembled more a rusty mat, but I still enjoyed it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365152/website_images/2023/12/d35b0e7a-3ba6-4651-9156-739ad2d5a9ba-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266033/d35b0e7a-3ba6-4651-9156-739ad2d5a9ba-1_chbwas.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365147/website_images/2023/12/4de242c8-2d80-4f25-a08d-d3166363d09e-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266001/4de242c8-2d80-4f25-a08d-d3166363d09e-1_jg3ohz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365151/website_images/2023/12/img_6295.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266523/img_6295_qexd6q.jpg)
 
 ### Miho Museum
 
@@ -318,21 +318,21 @@ It was a private museum designed by the Louvre’s architect. The building was i
 
 I lost interest quite fast, and condemned the price of the bus and museum. The brief introductions to each culture were largely irrelevant to the pieces on display. Nothing spoke to me, not even the temporary exhibition about Kinpusen deities (the golden realm on Mt Omine, where humans could communicate with divinities).
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365158/website_images/2023/12/img_6296.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266500/img_6296_uoq58l.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364980/website_images/2023/12/img_6298.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266563/img_6298_xghwca.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364979/website_images/2023/12/img_6299.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266511/img_6299_x3qs4x.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364969/website_images/2023/12/img_6300.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266537/img_6300_cuhqmn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364959/website_images/2023/12/img_6303.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266546/img_6303_lez46i.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364973/website_images/2023/12/img_6305.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266516/img_6305_ovsqeo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364977/website_images/2023/12/img_6306.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266593/img_6306_wxihoy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364982/website_images/2023/12/img_6307.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266516/img_6307_xksi7p.jpg)
 
 Groucy, fatigued, and bored, I returned to Kyoto. The curator of Miho and I were of a different mind.
 
@@ -356,13 +356,13 @@ Funnily enough, the host she’d actually reminded me of was the Seoul painter. 
 
 Dessert was the carrot cake. Night and day compared to the one in Israel. With a kick of lemon, it was perfectly astringent.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364970/website_images/2023/12/img_6311.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266488/img_6311_bwehub.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364977/website_images/2023/12/img_6312.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266513/img_6312_shgz8y.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364968/website_images/2023/12/img_6315.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266507/img_6315_rq8z7a.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364974/website_images/2023/12/90b9954c-ae0a-439b-b1c0-80fc806b994a-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266002/90b9954c-ae0a-439b-b1c0-80fc806b994a-1_yfnbe6.jpg)
 
 An interesting realization hit me while going to bed. I was no longer thinking around the clock about a couple of people who, since meeting them in the last few months, had taken over my brain.
 
@@ -378,7 +378,7 @@ I felt lighter, but also jealous of Ray and her ex.
 
 ### Farewell to Kyoto
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364963/website_images/2023/12/img_6316.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266558/img_6316_wkkqp6.jpg)
 
 I slept solid nine hours and woke with Ray and the couchsurfing couple late. Thanks to yesterday’s lucrative event, Ray took it easy this morning as well. We finished the carrot cake for breakfast and, for lunch, baked the most incredible apple crumble at Cloud Café.
 
@@ -392,7 +392,7 @@ Talking to the couple while she was hard at work at the teahouse felt engrossing
 
 As I’d written on April 15: “_The friends you made and food you ate mattered no less than the places you visited_.”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364958/website_images/2023/12/img_6317.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266534/img_6317_i8mv2e.jpg)
 
 After postponing my departure time again and again, I finally left with a belly full of apple crumble, and a promise to reunite with Ray in Christmas.
 
@@ -402,11 +402,11 @@ Three hours of slow trains later, I checked into my hostel in Himeji.
 
 Tonight’s only guests were a French guy and girl, a Japanese guy, and a Taiwanese girl. All of us immediately socialized on tatami mats. The French guy, who hadn't eaten dinner yet, joined me in recreating my previous dinner at a restaurant here: champon-yaki (a local variant of okonomiyaki) and cheese mochi doro-yaki (onion omelet), two Himeji specialties.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365161/website_images/2023/12/img_6320.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266515/img_6320_twmltk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365147/website_images/2023/12/img_6322.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266540/img_6322_gkogdo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365160/website_images/2023/12/img_6323.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266543/img_6323_dwkqzr.jpg)
 
 We talked a lot about ourselves. Too much, even. Oodles of information kept oozing, because we got along so well, until I found myself repeating conversations I'd made countless of times on this trip.
 

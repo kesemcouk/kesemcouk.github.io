@@ -26,7 +26,7 @@ Best udon ever.
 
 By the end, however, I discovered heaps of unmixed black pepper in the bottom, and left the restaurant with my mouth burning.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365117/website_images/2023/12/img_6622.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266413/img_6622_dksqv2.jpg)
 
 I continued to Ritsurin Garden, Takamatsu’s only attraction. Created in the late 16th century, it was mostly green, with some remnants of orange. Carefully cultivated low trees, like oversized bonsai; palms trees; a nice pond, a teahouse, and an artificial waterfall. All very calm and curated.
 
@@ -166,7 +166,7 @@ Where else in the world could one find such onsens? I wondered. Needless to say,
 
 Tanooki were pouring spring water from pottery into baths. The weather was cold, and the water a tad too hot. When I grew dizzy, I lounged on the rocks on the edge and let goosebumps spread on my skin. I thought a lot about death and the possibility that I’d never be able to get over certain memories. Like the rotenburo with Cowboy on our last day together. When I longed to relive certain moments or worried about looming hardships, I forgot that I lived.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364962/website_images/2023/12/img_6698-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266104/img_6698-768x1024_gu1ffk.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6702-768x1024.jpg)
 
@@ -418,7 +418,7 @@ The view was nice as well. Mountains practically had a lock on Uwajima. A small 
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6775-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365173/website_images/2023/12/img_6776-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266089/img_6776-768x1024_la4ryq.jpg)
 
 ### Taga Shrine
 
@@ -484,7 +484,7 @@ A 20,000 yen fine forbade picture-taking. I frowned at this. If the founder had 
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6819-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364968/website_images/2023/12/img_6820-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266089/img_6820-768x1024_e8uliw.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6821-768x1024.jpg)
 

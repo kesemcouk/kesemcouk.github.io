@@ -17,7 +17,7 @@ It happened during the first COVID-19 lockdown, and I felt as though I’d enter
 
 ## Summary of My Trip
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360196/website_images/2024/05/Japan-South-Korea-and-Taiwan-918x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266482/Japan-South-Korea-and-Taiwan-918x1024_tagvng.png)
 
 How to sum up fourteen months of traveling?
 

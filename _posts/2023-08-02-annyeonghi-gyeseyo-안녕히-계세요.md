@@ -14,7 +14,7 @@ How to sum up three months in Korea?
 
 Might as well start with a picture.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360161/website_images/2024/05/South-Korea.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266487/South-Korea_ehbsvf.png)
 
 I was going to publish an extremely long post about all the interesting people I’ve met in the past six months of traveling. Everyone ranging from strangers, acquaintances, to friends who have left their mark on me. I’ve been writing down one sentence they’ve told me that doesn’t leave my head, or a small reaction I can still visualize.
 

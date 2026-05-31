@@ -39,17 +39,17 @@ Face and fingers freezing, I crossed vacant streets and reached Togetsukyo bridg
 
 I chuckled. Water streaming, crows cawing, mist in the mountains. Barely a homo sapien to be seen.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361196/website_images/2023/11/img_5076.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266490/img_5076_yyd2nq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361052/website_images/2023/11/img_5082.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266503/img_5082_ltcxrj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361125/website_images/2023/11/img_5083.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266518/img_5083_e21nzb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361016/website_images/2023/11/img_5084.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266523/img_5084_e1vuu8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361034/website_images/2023/11/img_5086.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266536/img_5086_d9l8zs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361034/website_images/2023/11/img_5092.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266511/img_5092_bvaxv2.jpg)
 
 ### Path of Bamboo
 
@@ -63,19 +63,19 @@ At 6:50, the sun rose, licking the bottom part of the sticks.
 
 It was a sight as fleeting as it was wondrous. Ten minutes later, the grove grew too populated to enjoy.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361099/website_images/2023/11/img_5106.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266518/img_5106_blowot.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361147/website_images/2023/11/img_5114.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266550/img_5114_b6z1ch.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361153/website_images/2023/11/img_5138.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266566/img_5138_uv45sx.jpg)
 
 ### Kameyama Park
 
 With all the temples in the area still closed, I continued to Kameyama Park, and stumbled upon a valley. Daihikaku Senko-ji temple, by a stream, at the foot of a colorful mountain. The mist from before still lingering. Sunlight shining between trees.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360948/website_images/2023/11/img_5150.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266586/img_5150_wcgtju.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360959/website_images/2023/11/img_5151.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266531/img_5151_a8wnei.jpg)
 
 ### Tenryu-ji and Hogon-in Temples
 
@@ -83,17 +83,17 @@ Back on Togetsukyo bridge, breaths were materializing. Tenryu-ji, the most frequ
 
 Even at 8:00, it was too crowded. The adjacent Hogon-in slid its doors half an hour early, yet a quick stroll inside had me jaded. I’d forgotten my dislike of this region.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361235/website_images/2023/11/img_5163.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266525/img_5163_sq9jsf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361224/website_images/2023/11/img_5167.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266542/img_5167_jzx0od.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360936/website_images/2023/11/img_5169-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266103/img_5169-768x1024_fgcqsv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361079/website_images/2023/11/img_5171-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266081/img_5171-768x1024_ubclbl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360961/website_images/2023/11/img_5179.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266594/img_5179_kqpwij.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360982/website_images/2023/11/img_5182-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266116/img_5182-768x1024_shfv9c.jpg)
 
 A yuba (tofu skin) ice cream was not the best follow-up. It tasted like tofu. And my mouth was already frozen.
 
@@ -101,9 +101,9 @@ Then I spotted a yuba donut. A delicacy that had graced my tastebuds only once, 
 
 Warm and fluffy, neither sweet nor oily. An empty stomach’s best treat.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360949/website_images/2023/11/img_5184-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266082/img_5184-768x1024_bcnhsj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360984/website_images/2023/11/img_5185-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266082/img_5185-768x1024_txycdr.jpg)
 
 I finished touring Arashiyama with the difficult-to-find Enri-an, tucked inside bamboo thickets and back-alleys. A locals’ spot. The expensive entry fee made me backtrack, though. So did Nison-in’s. I had tired of Kyoto’s temples after mere two.
 
@@ -133,23 +133,23 @@ But the momiji. So red. And the setting sun hitting it at the right angle. With 
 
 The pale wood. The thatched roofs. I heard so much Korean.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360960/website_images/2023/11/img_5192.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266499/img_5192_gvhyqf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360940/website_images/2023/11/img_5193.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266493/img_5193_ldv0ng.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360994/website_images/2023/11/img_5196.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266495/img_5196_wo0j1x.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361020/website_images/2023/11/img_5197.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266580/img_5197_l7d1q4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360985/website_images/2023/11/img_5208.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266518/img_5208_yerlhu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361245/website_images/2023/11/img_5214.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266586/img_5214_fwlxdc.jpg)
 
 At 16:37, the sun sank behind the Higashiyama mountains.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361228/website_images/2023/11/img_5215.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266490/img_5215_qpo5t2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360961/website_images/2023/11/img_5222-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266057/img_5222-768x1024_zo9twn.jpg)
 
 I waited for an hour until the night illuminations. Half the time, owing to the sheer congestion, I didn’t get reception.
 
@@ -159,21 +159,21 @@ It wasn’t just a complete standstill. People were glued to the unobstructed ed
 
 It took me twenty minutes to infiltrate this chaos. But I got the money shot.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361127/website_images/2023/11/img_5266.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266536/img_5266_anozo9.jpg)
 
 It was both the most romantic view I’d seen at a temple and my messiest visit to one. Even rush-hour train stations in Tokyo enjoyed an orderly fashioned line.
 
 Outside, Kyoto grew cold again. Time-honored architecture, lit up in the dark, struck me as atmospheric.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361077/website_images/2023/11/img_5269.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266405/img_5269_lts4m4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361246/website_images/2023/11/img_5272-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266082/img_5272-768x1024_xqv9ky.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361220/website_images/2023/11/img_5273-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266083/img_5273-768x1024_bhvbqd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361002/website_images/2023/11/img_5276-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266082/img_5276-768x1024_umekt9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361105/website_images/2023/11/img_5278-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266058/img_5278-768x1024_ogvjsp.jpg)
 
 At least a third of the people out and about today were clad in kimono. When was the last time I’d seen someone dressed in traditional attire?
 
@@ -225,7 +225,7 @@ Then I reached Philosopher’s Path. It was dead quiet.
 
 The leaves were dead, too. Unlike sakura, this wasn’t a kouyou spot. It was a pleasant path, with barely anyone around.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361074/website_images/2023/11/img_5281.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266578/img_5281_il4lxn.jpg)
 
 ### Honen-in Temple
 
@@ -235,11 +235,11 @@ Featuring more birds in its garden than tourists. Crystal columns by the entranc
 
 It was like entering a magical forest. I could hear water dripping from a fountain, despite the handful of visitors.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361186/website_images/2023/11/img_5288.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266589/img_5288_draeis.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5289.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361098/website_images/2023/11/img_5296.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266553/img_5296_jzhmkq.jpg)
 
 I paid a hefty fee to enter the temple. Cold wood sang beneath my feet. Sliding doors with gold paint. Momiji a red so pale, it looked pink.
 
@@ -251,17 +251,17 @@ There were a couple of rooms with Edo period sliding door art so old, unphotogra
 
 Further on, I liked crouching under low ceilings.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361074/website_images/2023/11/img_5308.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266597/img_5308_j6gzv0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361098/website_images/2023/11/img_5309.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266589/img_5309_xe51ca.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361183/website_images/2023/11/img_5313.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266593/img_5313_rsp8tu.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5315.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361166/website_images/2023/11/img_5317.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266506/img_5317_dch3dr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361107/website_images/2023/11/img_5310.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266507/img_5310_d9b5lc.jpg)
 
 ### Anraku-ji Temple
 
@@ -281,11 +281,11 @@ And now – this.
 
 No one had stressed the relief my absence had brought them. It was devastating to learn that my lack could be a blessing.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361052/website_images/2023/11/img_5323.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266580/img_5323_bffeiu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361041/website_images/2023/11/img_5333.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266548/img_5333_fe2hke.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361105/website_images/2023/11/img_5338.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266579/img_5338_k73fsm.jpg)
 
 ### Shinnyo-do Temple
 
@@ -297,17 +297,17 @@ Very crowded, but not without merit. Everywhere I walked, scarlet provided shade
 
 Another favourite temple.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360948/website_images/2023/11/img_5352.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266582/img_5352_ywh7xs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360949/website_images/2023/11/img_5353.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266572/img_5353_uoivsc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361239/website_images/2023/11/img_5361.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266593/img_5361_uiwtva.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361246/website_images/2023/11/img_5389.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266539/img_5389_lcegkw.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5391.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360969/website_images/2023/11/img_5386.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266584/img_5386_gdzw4h.jpg)
 
 ### Eisho-in Temple
 
@@ -323,9 +323,9 @@ Nothing got to it. Neither beauty, nor pain. As if undergoing a trial by fire, a
 
 I sat in the veranda and watched the Buddha for a long time. Leaves rustling, birds tweeting, respectful tourists. The complete opposite of Kiyomizu-dera. This Buddha moved me as much as the Boddhisatva in Shodoshima. I would never forget either moment.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361245/website_images/2023/11/img_5404.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266576/img_5404_tmnbgc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360958/website_images/2023/11/img_5409.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266579/img_5409_lxqupe.jpg)
 
 ### Okazaki Shrine
 
@@ -333,11 +333,11 @@ Next, Konkai Komyo-ji, which featured little kouyou, and didn't seem worth the s
 
 I peeked at the nearby Okazaki shrine simply because it was marked on my map. Basically, the childbirth and rabbit shrine. With a sculpture of a rabbit giving birth for a water fountain.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361212/website_images/2023/11/img_5414.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266582/img_5414_ds8r5p.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5415-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361216/website_images/2023/11/img_5416.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266557/img_5416_nm7uix.jpg)
 
 ### Eikan-do Temple
 
@@ -359,27 +359,27 @@ Where were those soulmates? I wondered, as I climbed stone steps to a pagoda, an
 
 Eikan-do was my largest temple in Kyoto thus far, and another highlight on this increasingly impressive holy string.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360953/website_images/2023/11/img_5420.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266555/img_5420_suveuw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360995/website_images/2023/11/img_5427.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266527/img_5427_npmy7h.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360977/website_images/2023/11/img_5436.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266558/img_5436_bkyllp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361019/website_images/2023/11/img_5442.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266520/img_5442_mhdaon.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361222/website_images/2023/11/img_5445-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266530/img_5445-1_ict441.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361075/website_images/2023/11/img_5446.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266557/img_5446_pe7lic.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361097/website_images/2023/11/img_5453.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266534/img_5453_bnlde9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361025/website_images/2023/11/img_5456.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266576/img_5456_kpxfwz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361205/website_images/2023/11/img_5460.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266582/img_5460_kwkg3y.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361046/website_images/2023/11/img_5469.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266589/img_5469_izrdmh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361245/website_images/2023/11/img_5474-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266114/img_5474-768x1024_q3kxwp.jpg)
 
 ### Nanzen-ji Temple
 
@@ -419,9 +419,9 @@ Half of the clouds were parallel, like the gravel. The rest were a shapeless mas
 
 One could actually witness the sunset in Kyoto on a regular basis. In Tokyo, it was easy to forget such a phenomenon existed.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361003/website_images/2023/11/img_5477-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266083/img_5477-768x1024_hgeepw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361106/website_images/2023/11/img_5479-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266103/img_5479-768x1024_odp7be.jpg)
 
 Crossing landmarks such as the giant torii of Heian Shrine, I could see the Ukrainian girl and me all over this city. So many memories from our mere two days here in April. Even the grocery store where I bought dinner for tonight seemed familiar; I’d looked for black sticky rice there with her.
 
@@ -479,21 +479,21 @@ Every shade of flare was alight here, like a forest fire. From pale yellow to bu
 
 The view from the top was particularly astonishing. Probably the most beautiful I’d seen.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361029/website_images/2023/11/img_5483.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266548/img_5483_mpeoba.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361102/website_images/2023/11/img_5489.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266590/img_5489_n4gwfi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361051/website_images/2023/11/img_5496.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266595/img_5496_t4xmgu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361117/website_images/2023/11/img_5503-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266489/img_5503-scaled_xcbuks.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361034/website_images/2023/11/img_5508-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266459/img_5508-scaled_ewnqj3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361182/website_images/2023/11/img_5513.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266565/img_5513_ghdlk0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361192/website_images/2023/11/img_5517-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266489/img_5517-scaled_xsaw0n.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361088/website_images/2023/11/img_5526.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266566/img_5526_pbhbe9.jpg)
 
 I prayed at a hall by a dry landscape garden. This one was checkered. The patterned blocks featured parallel lines, some horizontal, some vertical. Their clashing was minute and precise.
 
@@ -503,7 +503,7 @@ A predictable routine was too stagnant. Hanging by a thread was too uncertain. A
 
 I paid for a separate ticket to Honbou. A dry landscape garden featuring circles among lines, as if giant raindrops had birthed ripples of water. The same impression of wabi-sabi, imperfection in perfection. If this concept was the proper way to live, why was it so emptying?
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360982/website_images/2023/11/img_5542.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266582/img_5542_qtxhnn.jpg)
 
 ### To-ji Temple
 
@@ -511,7 +511,7 @@ My last stop was To-ji temple. Unlike Kiyomizu-dera, entering before sunset and 
 
 At 15:40, Kyoto had grown so cloudy and windy, while To-ji disenchanted me; neither the time nor the money seemed rewarding. I walked back to my hostel and devoured an entire bag of matcha Kit-Kat (only my second time in 6.5 months in Japan!). A friendly staff member recommended plenty of hidden gems to me, while a friend texted that he was spontaneously on his way to Osaka. Thus, I spent the evening revising my itinerary.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360970/website_images/2023/11/img_5543.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266556/img_5543_mzp2rn.jpg)
 
 Horizon’s ex texted me at night again. He’d been doing this quite often lately.
 
@@ -573,15 +573,15 @@ A Tendai sect branch, founded in 703, in worship one of the Seven Deities of Luc
 
 I toured the temple with a couple of English teachers from Jamaica and Trinidad. It was sunny and drizzling at the same time, so gently that I couldn’t feel the raindrops with my hands.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361072/website_images/2023/11/img_5545.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266596/img_5545_khb76g.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360985/website_images/2023/11/img_5550-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266576/img_5550-1_lzlglj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360983/website_images/2023/11/img_5552.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266553/img_5552_xmxfwc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361001/website_images/2023/11/img_5553.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266598/img_5553_iywnyb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361222/website_images/2023/11/img_5560.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266594/img_5560_swwewa.jpg)
 
 The Trinidadian was tall, articulate, and slender. The Jamaican carried a katana umbrella and a bag spotted with pins.
 
@@ -589,9 +589,9 @@ The Trinidadian was tall, articulate, and slender. The Jamaican carried a katana
 
 We walked back to the train station through charming backyards.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361242/website_images/2023/11/img_5566.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266577/img_5566_nflyhi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360950/website_images/2023/11/img_5569.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266567/img_5569_qicxoi.jpg)
 
 It would’ve been fun to hang out more with them, but Kaju-ji was waiting for me.
 
@@ -605,15 +605,15 @@ Brilliantly scarlet trees. Yet a different plant was attracting me. I sat on a r
 
 It was completely silent here, with maybe five elderly Japanese visitors.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361245/website_images/2023/11/img_5570.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266556/img_5570_hyufyk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361249/website_images/2023/11/img_5571.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266564/img_5571_gisx5x.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361211/website_images/2023/11/img_5575.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266586/img_5575_z5l0xb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361222/website_images/2023/11/img_5577.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266573/img_5577_zaw9oh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361003/website_images/2023/11/img_5579.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266573/img_5579_smotdy.jpg)
 
 ### Daigo-ji Temple
 
@@ -623,17 +623,17 @@ The entrance gate was a fierce introduction. The pagoda, pale brown, was indeed 
 
 As far as kouyou went, only the pond struck a leaf. Verdant wine reflecting on water, towered by the tallest gingko tree.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361221/website_images/2023/11/img_5588.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266548/img_5588_ujjziy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361001/website_images/2023/11/img_5590.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266584/img_5590_zunenf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360984/website_images/2023/11/img_5594.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266539/img_5594_dqmqe1.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5596.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361223/website_images/2023/11/img_5602.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266597/img_5602_bvri9p.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361247/website_images/2023/11/img_5606.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266583/img_5606_fjxckw.jpg)
 
 In the afternoon, I returned to my hostel, and passed the time with the Taiwanese uncle. Expressing my desire to behold kouyou again at night, he recommended a temple I'd visited in April.
 
@@ -641,9 +641,9 @@ In the afternoon, I returned to my hostel, and passed the time with the Taiwanes
 
 At 20:00, I walked for half an hour to Kodai-ji. Gion was pleasantly nipping and lantern-lit.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360959/website_images/2023/11/img_5609.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266499/img_5609_gko57k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361242/website_images/2023/11/img_5610.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266545/img_5610_pchk1s.jpg)
 
 I stood in line for the first time to a temple. Once I entered, a smile stretched on my face.
 
@@ -651,11 +651,11 @@ Dark gravel and illuminated fires. Thatched roofs and a full moon peeking betwee
 
 The route inside the temple was congested enough, that I was standing most of the time in line. Here was no mere night illumination, but also a digital projections on a dry landscape garden. The blasphemy.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361249/website_images/2023/11/img_5613.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266498/img_5613_ji3kcy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360979/website_images/2023/11/img_5624.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266529/img_5624_fopih1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361051/website_images/2023/11/img_5625.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266501/img_5625_bf7smg.jpg)
 
 Then, a pond. Orange and yellow reflecting on blackness. A hearth of dark ripples and upside-down, lit-up leaves had me frozen solid. One of those sights so sad, that they became beautiful. Or rather so beautiful, they became sad.
 
@@ -665,17 +665,17 @@ This was the epitome of romanticism. Gothic, fragile, dramatic, sombre, small an
 
 The only form of art, in my opinion.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361027/website_images/2023/11/img_5640.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266511/img_5640_om8rhh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361010/website_images/2023/11/img_5632.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266541/img_5632_dlango.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361212/website_images/2023/11/img_5628.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266492/img_5628_it8kyw.jpg)
 
 Finally, there was a bamboo grove, with more illuminations.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361138/website_images/2023/11/img_5646.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266558/img_5646_p6nvux.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361043/website_images/2023/11/img_5657.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266540/img_5657_qu4bs1.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5664-768x1024.jpg)
 
@@ -685,7 +685,7 @@ Gion at night, in fall, after four days of kouyou, paid off.
 
 I picked back-alleys and narrow detours running parallel to placid streams. Kyoto finally made me grin.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361141/website_images/2023/11/img_5666.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266489/img_5666_kxmnxc.jpg)
 
 **Today's highlights:** a marriage of tangerine and sanguine in Bishamon-do; the withered lotus pond in Kaju-ji; the ginkgo tree in Daigo-ji; the dark pond and illuminated bamboos in Kodai-ji; Gion at night.
 

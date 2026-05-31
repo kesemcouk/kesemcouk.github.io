@@ -98,27 +98,27 @@ I visited the hall where Japanese assassins murdered Queen Myeongseong. Some of 
 
 All throughout the palace, construction workers were hard at renovations.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364735/website_images/2023/06/img_8166.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266522/img_8166_rkjmzs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364883/website_images/2023/06/img_7674.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266498/img_7674_akdhea.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364849/website_images/2023/06/img_7676.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266547/img_7676_qemizs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364776/website_images/2023/06/img_7682.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266508/img_7682_phe3vl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364698/website_images/2023/06/img_7687.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266566/img_7687_g6v9sn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364774/website_images/2023/06/img_7695.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266544/img_7695_tq5nuw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364755/website_images/2023/06/img_7691.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266557/img_7691_ytnwno.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364831/website_images/2023/06/img_7706.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266597/img_7706_wrsp8a.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364747/website_images/2023/06/img_7705-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266529/img_7705-1_sy5uli.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364886/website_images/2023/06/img_7714.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266533/img_7714_qbbew4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364776/website_images/2023/06/img_7709.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266517/img_7709_nk2kb9.jpg)
 
 I explored the entire complex at leisure until 13:00, and then returned to the main gate for the guard’s duty performance. They carried huge swords and sported the same style of goatee. The main guard examined his subordinates’ uniform and made readjustments. They rang bells and shouted commands.
 
@@ -150,11 +150,11 @@ I kept thinking back of the beginning of my trip to Japan. My first 2.5 days the
 
 By 17:00, the festival was over.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364723/website_images/2023/06/img_7745-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266562/img_7745-1_ndtjhy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364752/website_images/2023/06/8fcd26de-912f-47da-9d1a-7d9df45ddec1-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266001/8fcd26de-912f-47da-9d1a-7d9df45ddec1-1024x576_xxzxqi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364943/website_images/2023/06/img_7756-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266568/img_7756-1_hvhvg5.jpg)
 
 ### Bukchon Hanok Village
 
@@ -186,11 +186,11 @@ We’d arrived at the village at the perfect time. Sunset over the hanoks and Bu
 
 The amazing thing was, none of the shops and restaurants were closed. Art galleries, cafes with sweeping views. In Japan, they would all be open between 11:00-16:00.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364916/website_images/2023/06/img_7773.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266538/img_7773_cmh1vt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364936/website_images/2023/06/img_7788.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266432/img_7788_l3bvug.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361948/website_images/2023/06/img_7791.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266523/img_7791_w5wjmd.jpg)
 
 ### Gyeongbok-gung Palace... Again
 
@@ -228,29 +228,29 @@ The vast majority of the night visitors were couples. The rest, friends or famil
 
 I fell into ruminations about my place in the world, and in society.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364850/website_images/2023/06/img_7806-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266531/img_7806-1_hu7wgw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364730/website_images/2023/06/img_7832-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266544/img_7832-1_ckprao.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361938/website_images/2023/06/img_7857-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266494/img_7857-1_nx1dlo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364849/website_images/2023/06/img_7802-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266538/img_7802-1_yctylh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364792/website_images/2023/06/img_7889-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266490/img_7889-1_nblydm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364820/website_images/2023/06/img_7863-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266549/img_7863-1_qqc47s.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365523/website_images/2023/06/img_7899-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266493/img_7899-1_dm3zcm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360924/website_images/2023/05/img_7850.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266492/img_7850_g0hnnr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364921/website_images/2023/06/img_7901-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266499/img_7901-1_s6av18.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364864/website_images/2023/06/img_7902-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266522/img_7902-1_h4gl9a.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364955/website_images/2023/06/img_7903-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266501/img_7903-1_qqomdo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364903/website_images/2023/06/img_7907-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266488/img_7907-1_onfvim.jpg)
 
 I left the palace at 21:00, having spent no less than six hours today delving into every nook and cranny. For the first time, I possessed pictures of myself that didn’t involve smiling.
 
@@ -348,17 +348,17 @@ I circled the presidential residence and peeked inside the back rooms (all empty
 
 I was the only foreigner.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364732/website_images/2023/06/img_7965.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266560/img_7965__v1769364732_udf84g.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361952/website_images/2023/06/img_7949.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266530/img_7949_busc3z.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364909/website_images/2023/06/img_7932.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266588/img_7932_pn6i33.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361949/website_images/2023/06/img_7948.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266556/img_7948_frjevm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364681/website_images/2023/06/img_7970.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266590/img_7970__v1769364681_egpmq2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361948/website_images/2023/06/img_7960.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266542/img_7960_rdzflf.jpg)
 
 ### The Dignity of Tradition Festival
 
@@ -498,11 +498,11 @@ The cliffside temple, just like in the photo, was an alluring blur of red lanter
 
 I waited half an hour to take a photo. Koreans didn’t wait neatly in line, and photobombed each other.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364916/website_images/2023/06/img_8032-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266494/img_8032-1_zn1lk5.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364773/website_images/2023/06/img_8078-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266533/img_8078-1_fm8ujz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364747/website_images/2023/06/img_8164.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266554/img_8164_h0tut7.jpg)
 
 At the temple, I took off my shoes and entered. It was tiny. A woman was reciting a sutra under her breath. Golden Buddha inside. Silence. Birds – the same as the black-and-white ones at palace – sounded like a whistle. People were doing prostrations again and again. In Japan people never did that. Temples there were less strict and practice-y. Barely no one from the huge crowd at the peak descended to the one here. I prayed momentarily and left.
 
@@ -534,15 +534,15 @@ The giant bees from Kansai region were here as well.
 
 At the foot of the mountain, we encountered an abandoned, old gym, all rusty and creepy, like the park in Nachi. Finally, we reached Sadang station, and parted ways.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361968/website_images/2023/06/img_8107.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266541/img_8107_qv1hm4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364810/website_images/2023/06/img_8201.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266592/img_8201_bb8zgw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364692/website_images/2023/06/img_8167.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266584/img_8167_xkoh2h.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361964/website_images/2023/06/img_8072.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266491/img_8072_xsjg0y.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364687/website_images/2023/06/img_8173.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266496/img_8173_q6cjxz.jpg)
 
 Gwanaksan was my first hike in Korea. It made me exclaim “wow” at various points throughout the day. Having finished it early in the afternoon, I was tempted to scour my list for another attraction. I almost hit one of Seoul’s main temples. Ultimately, I decided to return to my host’s and make progress with my giant list of errands instead. I still hadn’t found a place to stay in two days. I needed to book some accommodations.
 
@@ -574,11 +574,11 @@ She offered to host me again upon my return to Seoul in July. My second couchsur
 
 Tonight was my final night at her studio, and tomorrow morning I would leave before her return. So we hugged goodbye, only it wasn’t hard to do so, because we’d see each other again.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364729/website_images/2023/06/img_8204.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266536/img_8204_klxnbu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364727/website_images/2023/06/img_8205.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266542/img_8205_edjick.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364718/website_images/2023/06/img_8211.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266493/img_8211_q2a6hd.jpg)
 
 ### Nowhere Waiting to be Found
 

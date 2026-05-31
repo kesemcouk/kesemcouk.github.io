@@ -40,11 +40,11 @@ Gusts were blowing sand and snow. Waves were crashing in the roaring sea. The wi
 
 I could barely see where I was walking. My companion and I burst out laughing from the sheer ridiculousness of this. Was there another place on earth with such conditions?
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360855/website_images/2024/01/img_7119-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266110/img_7119-768x1024_z2zf2d.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360800/website_images/2024/01/img_7131-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266093/img_7131-768x1024_ve3gl6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360801/website_images/2024/01/img_7136-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266106/img_7136-768x1024_dkgjdl.jpg)
 
 The handful of other visitors walked straight to the best spot and returned. We circled the dunes all the way to the sea and to remains of volcanic ashes, to an oasis, to meagre flora. Wind was creating ripples of sand and snow.
 
@@ -52,23 +52,23 @@ This was one of the only days of the year when one could experience this. It sno
 
 After a few frustrating days in Chugoku, where everything that could’ve gone wrong had done so, I couldn’t have rejoiced more. The last time I was on the verge of hypothermia was in Hokkaido – the sunrise tour on the frozen Lake Akan, in minus 20 degrees, on February 15. My fingers were turning maroon now as well.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360636/website_images/2024/01/img_7145-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266106/img_7145-1024x768_bmsiyw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360667/website_images/2024/01/img_7148-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266065/img_7148-768x1024_cygj2n.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360718/website_images/2024/01/img_7151-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266092/img_7151-768x1024_f2f7gm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360690/website_images/2024/01/img_7157-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266092/img_7157-768x1024_qbqgsw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360765/website_images/2024/01/img_7158-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266107/img_7158-1024x768_hhc6nz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360775/website_images/2024/01/img_7170-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266093/img_7170-768x1024_fmhka6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360640/website_images/2024/01/img_7181-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266094/img_7181-768x1024_aipk0s.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360778/website_images/2024/01/img_7188-769x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266093/img_7188-769x1024_tmanug.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360741/website_images/2024/01/img_7194-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266107/img_7194-1024x768_h5aztl.jpg)
 
 We warmed up inside the souvenir shop afterwards. They sold sand-themed merch, in addition to coffee and pears. I also saw restaurants with live crabs in water tanks, a la Korea. All local specialties.
 
@@ -76,9 +76,9 @@ After the guy left (he was staying in Osaka), I warmed up at the visitor centre,
 
 Lunch at the souvenir shops included cup noodles, a crab rice cracker, and pear ice cream. The owner fed the latter to his dog. Then I walked to the sand museum.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360614/website_images/2024/01/img_7202-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266094/img_7202-768x1024_uyxuv1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360649/website_images/2024/01/img_7203-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266094/img_7203-768x1024_ehtbzx.jpg)
 
 ### Sand Museum
 
@@ -114,7 +114,7 @@ At the recreation of the pyramid complex and great sphinx of Giza, a seven-minut
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/img_7223-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360807/website_images/2024/01/img_7214-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266094/img_7214-768x1024_t0jaof.jpg)
 
 ### Night Illuminations at the Sand Dunes
 
@@ -126,13 +126,13 @@ It was a freezing ordeal that got me into the holiday spirit. Snow and lit up tr
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/img_7231-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360636/website_images/2024/01/img_7234-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266107/img_7234-768x1024_faogjq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360860/website_images/2024/01/IMG_7233-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266115/IMG_7233-768x1024_qgdzcx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360717/website_images/2024/01/IMG_7244-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266095/IMG_7244-1024x768_oyvr0w.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360611/website_images/2024/01/IMG_7242-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266107/IMG_7242-768x1024_rzluuj.jpg)
 
 After midday’s breather, it was snowing again. Food trucks served festival food. I took the last bus back to Tottori and returned satisfied to my hostel.
 
@@ -224,17 +224,17 @@ Icicles and fog as far as the eye could see. A snowstorm and a roaring sea. The 
 
 I grinned and joined them. This scene reminded me of February 21 – the Aomori snowstorm and Kunitachi guy, snapping photos of our local train from Hirosaki to Aomori with his professional camera.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360837/website_images/2024/01/IMG_7250-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266108/IMG_7250-768x1024_tpuucv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360671/website_images/2024/01/IMG_7252-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266108/IMG_7252-768x1024_zl8sxn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360659/website_images/2024/01/IMG_7256-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266111/IMG_7256-768x1024_dqgsnk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360614/website_images/2024/01/IMG_7255-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266095/IMG_7255-768x1024_uvowgw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360679/website_images/2024/01/IMG_7258-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266108/IMG_7258-768x1024_z1r3mf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360775/website_images/2024/01/IMG_7267-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266095/IMG_7267-768x1024_cghxny.jpg)
 
 No sooner had I written this sentence than our train came to a halt. We were passing a narrow mountain road during a snowstorm, when a fallen tree blocked our passage.
 
@@ -262,7 +262,7 @@ We’d spent the next few hours together, the Japanese guy and I, a day as magic
 
 Now, some passengers were worried about missing their next train, while I was having a blast.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360841/website_images/2024/01/IMG_7269-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266096/IMG_7269-768x1024_nohm4v.jpg)
 
 ### Kinosaki Onsen
 
@@ -280,39 +280,39 @@ The restaurant had one last empty seat. It was the kind of small, upscale establ
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7280-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360757/website_images/2024/01/IMG_7284-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266110/IMG_7284-768x1024_hu2hpa.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360802/website_images/2024/01/IMG_7294-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266095/IMG_7294-768x1024_c5ctsj.jpg)
 
 Back outside, it was snowing heavily. Soft, light, and fragile, the flakes were barely discernible. No wind took away from the charm of this moment.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360765/website_images/2024/01/IMG_7297-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266115/IMG_7297-768x1024_gauyq9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360862/website_images/2024/01/IMG_7299-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266116/IMG_7299-768x1024_fotnhc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360671/website_images/2024/01/IMG_7302-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266108/IMG_7302-768x1024_rqfbpj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360611/website_images/2024/01/IMG_7312-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266109/IMG_7312-768x1024_epmajf.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7314-768x1024.jpeg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7316-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360838/website_images/2024/01/IMG_7317-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266109/IMG_7317-768x1024_euqlud.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7319-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360684/website_images/2024/01/IMG_7322-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266109/IMG_7322-768x1024_odfumb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360677/website_images/2024/01/IMG_7326-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266110/IMG_7326-768x1024_uv86zh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360657/website_images/2024/01/IMG_7328-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266109/IMG_7328-768x1024_slfs5a.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360805/website_images/2024/01/IMG_7340-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266110/IMG_7340-768x1024_hfzjo2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360714/website_images/2024/01/IMG_7342-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266115/IMG_7342-768x1024_ghfcfn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360794/website_images/2024/01/IMG_7327-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266096/IMG_7327-768x1024_pfbyjf.jpg)
 
 ### Sato-no-yu Onsen
 
@@ -352,7 +352,7 @@ The town was nigh empty. Everyone was either having dinner, or had already depar
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7356-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360632/website_images/2024/01/IMG_7351-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266097/IMG_7351-768x1024_c7fccx.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7362-768x1024.jpeg)
 
@@ -402,7 +402,7 @@ I couldn’t believe that I was living through this moment.
 
 We said goodnight. I returned to my hostel on cloud nine. The last two days were among the most gratifying of my life.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360790/website_images/2024/01/IMG_4101-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266077/IMG_4101-1024x768_zbjqrr.jpg)
 
 **Today's highlights:** getting stuck on a train during a snowstorm on a mountain; slipping on icy roads; the view of Kinosaki from Sato-no-yu; the snowy kouyou in Gosho-no-yu; Kinosaki's main street at night; the snowy slope in Kou-no-yu; the cave bath in Ichi-no-yu; melon milk.
 
@@ -422,15 +422,15 @@ I checked out in the morning and bid snowy Kinosaki a sad farewell. As I took se
 
 Goodbye to this view.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360847/website_images/2024/01/IMG_7397-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266110/IMG_7397-768x1024_auw5pf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360846/website_images/2024/01/IMG_7403-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266117/IMG_7403-768x1024_ymrugn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360775/website_images/2024/01/IMG_7409-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266117/IMG_7409-768x1024_ryv1hd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360616/website_images/2024/01/IMG_7411-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266117/IMG_7411-768x1024_iji97j.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360829/website_images/2024/01/IMG_7413-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266117/IMG_7413-768x1024_hdmw66.jpg)
 
 ### Partying in Osaka
 
@@ -444,7 +444,7 @@ I danced with some people, but my friend, in charge of photographing the event, 
 
 To make matters worse, I’d never encountered such an expensive entry fee that didn’t even include a drink. (And for a small bar… not even a club…)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360678/website_images/2024/01/IMG_7421-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266118/IMG_7421-768x1024_opugy7.jpg)
 
 I left frustrated after three hours, and walked south for half an hour to meet a Thai friend living in Osaka.
 
@@ -460,9 +460,9 @@ Ray was working in Osaka on Christmas. Her ex and I were staying at her house. I
 
 In the evening, the two of us visited Kyoto station for the Christmas illuminations. They turned out to be a mere LED staircase. Not even a tree around. More noteworthy was the multitude of cosplayers.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360661/website_images/2024/01/IMG_7438-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266118/IMG_7438-768x1024_gif7jl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360757/website_images/2024/01/IMG_7440-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266118/IMG_7440-768x1024_r9e5qz.jpg)
 
 We returned to her house. I made dinner. That was it.
 
@@ -492,11 +492,11 @@ Kimono, yukata, pottery, chopsticks, decorations, street food, and fresh produce
 
 I checked out the temple, which featured reddish thatched roof. A geisha was praying at the main hall and being photographed like a celebrity.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360725/website_images/2024/01/IMG_7445-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266118/IMG_7445-768x1024_kezjj0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360803/website_images/2024/01/IMG_7447-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266118/IMG_7447-768x1024_nlkuso.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360802/website_images/2024/01/IMG_7450-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266119/IMG_7450-768x1024_nc47pc.jpg)
 
 ### A Filipino-Israeli Date
 
@@ -510,11 +510,11 @@ Hearing his story was a wild ride, especially after dozens of people had joked t
 
 The Filipino and I ordered hummus and pita (his first encounter of this dish). We talked to the owner to no end. A few days ago, a woman from a local travel company, founded by an Israeli expat, had dined here. The same woman who had invited me for an interview at that company tomorrow.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360703/website_images/2024/01/IMG_7451-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266119/IMG_7451-768x1024_dcbxkr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360712/website_images/2024/01/IMG_7455-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266119/IMG_7455-768x1024_lvlqya.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360755/website_images/2024/01/IMG_7457-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266119/IMG_7457-768x1024_xmbalv.jpg)
 
 The owner mentioned another Israeli expat, who owned a guesthouse in central Kyoto and offered free accommodation for volunteers. I wish I’d known about this in November. It struck me again how much I could network by conversing in Hebrew in Japan. Just like with the rabbi and Israeli restaurant from Tokyo.
 

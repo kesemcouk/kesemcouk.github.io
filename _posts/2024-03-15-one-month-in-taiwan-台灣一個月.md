@@ -66,11 +66,11 @@ In 1887, Taiwan had become a province, and the prefecture was renamed Tainan Pre
 
 Then the Japanese occupiers had overhauled Tainan. They’d demolished the city walls and introduced Western-style architecture.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360046/website_images/2024/03/IMG_9141-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266437/IMG_9141-768x1024_qjfao0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359642/website_images/2024/03/IMG_9144-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266437/IMG_9144-768x1024_xdfhrz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360026/website_images/2024/03/IMG_9145-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266437/IMG_9145-768x1024_ktaay8.jpg)
 
 ### Koxinga Museum
 
@@ -78,17 +78,17 @@ Outside the museum stood Koxinga shrine, a half-Japanese design with aquamarine 
 
 There was none of the psychedelic Taoist horror vacui. With neither animals roaming the roofs nor blackened deities (for lack of incense), the shrine resembled more the Korean Dancheong. I found it a small yet gorgeous spot to learn history and bask in well-balanced architecture. Not too gaudy, not too dull.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359663/website_images/2024/03/IMG_9147-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266437/IMG_9147-768x1024_vzromz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359936/website_images/2024/03/IMG_9151-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266438/IMG_9151-768x1024_wbdbt3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359959/website_images/2024/03/IMG_9155-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266438/IMG_9155-768x1024_txpqpo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359832/website_images/2024/03/IMG_9158-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266438/IMG_9158-768x1024_d5fqqq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359934/website_images/2024/03/IMG_9162-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266438/IMG_9162-768x1024_nq3xgi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359945/website_images/2024/03/IMG_9168-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266438/IMG_9168-768x1024_q5ue8i.jpg)
 
 ### Lady Linshu Temple
 
@@ -106,27 +106,27 @@ The prayer sticks and burnable paper.
 
 For this reason alone, they were worth a visit.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359743/website_images/2024/03/IMG_9170-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266439/IMG_9170-768x1024_p7alvd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359825/website_images/2024/03/IMG_9172-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266439/IMG_9172-768x1024_p1lmxr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359776/website_images/2024/03/IMG_9173-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266439/IMG_9173-768x1024_mtn2jr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359729/website_images/2024/03/IMG_9174-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266439/IMG_9174-768x1024_fxzm1k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359620/website_images/2024/03/IMG_9179-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266439/IMG_9179-768x1024_srv2s8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359901/website_images/2024/03/IMG_9181-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266440/IMG_9181-768x1024_jmrhu7.jpg)
 
 I rested at the park between the temple and shrine in a tranquil, Korean-like pavilion. The sun was setting; a pleasant breeze was blowing. A guy was walking his pet rooster.
 
 For dinner, I ate milk and red bean ice cream, plus frozen taro, milk, and peanut cubes. I found the former a bit odd. Then I bought a pineapple cake at a tiny and old stand. Finally, I got to try the most famous cake on this island.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359797/website_images/2024/03/IMG_9183-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266440/IMG_9183-768x1024_ebgbci.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359720/website_images/2024/03/IMG_9184-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266440/IMG_9184-768x1024_yyycgk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359809/website_images/2024/03/IMG_9187-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266440/IMG_9187-768x1024_hmffxr.jpg)
 
 Both shops were locals’ spots devoid of English. Everything on my list for Tainan today had come from the Taiwanese uncle I’d befriended in Kyoto back in November. None had surfaced from my research online. He’d told me about this city and recommended I visited in February, during the Lantern Festival. Moreover, he’d translated the menus for me in advance.
 
@@ -176,11 +176,11 @@ Yanshui was a tiny, old town that became hell each year for one day. Today marke
 
 No sooner had we arrived than a procession started toward the main shrine. Grandmas carrying puppets of men like backpacks; men carrying portable temples and horses. I even noticed someone with a temple backpack. The pre-game started with firecrackers ignited in the middle of the road, right next to everyone. Deafening and dangerous.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359796/website_images/2024/03/IMG_9194-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266440/IMG_9194-768x1024_rudxpa.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359687/website_images/2024/03/IMG_9202-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266441/IMG_9202-768x1024_teuiwm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359670/website_images/2024/03/IMG_9206-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266441/IMG_9206-768x1024_u4t1rg.jpg)
 
 A huge, temporary market offered endless variety of food – yet only four vendors sold protective gear for tonight. Scalpels. This year, we heard, the rules were strict. Cops would bar entry for anyone without a helmet, a thick cotton jacket, a cotton scarf, cotton gloves, jeans, and sports shoes. An outfit too expensive for us.
 
@@ -192,11 +192,11 @@ We crossed a single-lane countryside road as firecrackers detonated on the shoul
 
 Fresh holes from firecrackers had punctured his vest.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359551/website_images/2024/03/IMG_9212-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266441/IMG_9212-768x1024_ubnvbj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359980/website_images/2024/03/IMG_9214-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266441/IMG_9214-768x1024_du3eju.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359892/website_images/2024/03/IMG_9227-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266441/IMG_9227-768x1024_xb6ks4.jpg)
 
 At 16:00, we returned to Yanshui. Colorful fireworks exploded in the middle of the road. I had to retreat due to the noise and smoke. Everyone else seemed unfazed.
 
@@ -214,11 +214,11 @@ The swelling on the crown on my head hurt under the pressure of the helmet.
 
 The girl gave me her extra pair of earplugs and gloves. I put on my Japanese neck warmer and a mask, against the gunpowder fumes. My waterproof rain jacket was super thin to protect my torso.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359721/website_images/2024/03/IMG_9235-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266442/IMG_9235-768x1024_faz9fs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359852/website_images/2024/03/IMG_9237-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266442/IMG_9237-768x1024_pq4i9m.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359837/website_images/2024/03/IMG_9243-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266442/IMG_9243-768x1024_ms4fkh.jpg)
 
 ### The Main Event
 
@@ -232,11 +232,11 @@ A man without any protection stood on top of the boat and yelled a bunch of thin
 
 We’d walked straight into the lion’s den. As if some kind of a cosmic power had pulled a spaceship toward a black hole.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359968/website_images/2024/03/IMG_9250-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266442/IMG_9250-770x1024_caehpn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360046/website_images/2024/03/IMG_9263-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266443/IMG_9263-768x1024_rl40ti.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359928/website_images/2024/03/IMG_9279-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266443/IMG_9279-768x1024_ydivo1.jpg)
 
 The guy, girl, and I were standing closest to the firecrackers. I wanted to backtrack – I wanted some distance – I was sweating, trapped by moonwalkers and rocketeers –
 
@@ -266,11 +266,11 @@ How the turntables. I insisted we backed off.
 
 Preparations for round two were already in full force. I ventured into the mob of deranged cosmonauts. The road was covered in faded red remains of firecrackers.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360002/website_images/2024/03/IMG_9284-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266443/IMG_9284-768x1024_ivzh2k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359875/website_images/2024/03/IMG_9289-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266443/IMG_9289-768x1024_hmgkrr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359694/website_images/2024/03/IMG_9291-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266443/IMG_9291-768x1024_iexx6c.jpg)
 
 I watched the second round a few meters away from the boat. It looked like a giant cannon shooting fire at volunteers.
 
@@ -328,19 +328,19 @@ I took off my helmet. Teddy pointed at my jaw in horror. I hadn’t even felt th
 
 Oddly enough, my jeans and thin rain jacket were as good as new.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359833/website_images/2024/03/IMG_9304-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266444/IMG_9304-768x1024_xggnfy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359772/website_images/2024/03/IMG_9305-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266444/IMG_9305-768x1024_sreu1o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360014/website_images/2024/03/IMG_9307-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266444/IMG_9307-770x1024_casden.jpg)
 
 We strolled around the river. I put on my ear plugs and mask again. The fireworks reached us even here. I felt like a was taking a walk outside a warzone.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359768/website_images/2024/03/IMG_9312-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266444/IMG_9312-768x1024_poba27.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359838/website_images/2024/03/IMG_9313-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266444/IMG_9313-768x1024_gegtm7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359752/website_images/2024/03/IMG_9315-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266445/IMG_9315-768x1024_slqbdj.jpg)
 
 With an actual war ravishing Gaza and Israel, I wondered how one place on the same planet could engage in a 2,000-year-old bloodshed, while another was busy chasing thrills and celebrating festivals.
 
@@ -390,17 +390,17 @@ We bought a consoling chocolate milk tea and visited the oldest high school in T
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9324-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359661/website_images/2024/03/IMG_9382-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266451/IMG_9382-576x1024_iinaty.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359731/website_images/2024/03/IMG_9328-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266445/IMG_9328-768x1024_dojhim.jpg)
 
 The nearby Old Tainan Minister Residence, built during the Occupation, was a mansion combining a Japanese roof, Western columns, and an interior straight out of England. The premises now included living quarters for employees of the high school.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359929/website_images/2024/03/IMG_9329-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266445/IMG_9329-768x1024_m99jy1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359966/website_images/2024/03/IMG_9330-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266445/IMG_9330-768x1024_mzsjec.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359622/website_images/2024/03/IMG_9332-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266445/IMG_9332-768x1024_qm51e2.jpg)
 
 We browsed at a fancy Japanese shop, where he ogled at artworks on sale while complaining about the price. I felt déjà vu to my time with the Morioka woman, who likewise took me to worthless attractions and made me pay for everything, including for her. I had neither time nor money to waste, and hadn’t signed up for five days of this.
 
@@ -420,17 +420,17 @@ Both the fort and tower hadn't survived, so instead the focal attraction was Hai
 
 A digital screen was counting the number of visitors on the upper floor, to avoid congestion. There, we found scale models of ancient vessels.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359948/website_images/2024/03/IMG_9334-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266446/IMG_9334-768x1024_hna9c7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359635/website_images/2024/03/IMG_9336-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266446/IMG_9336-768x1024_aonjoo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360039/website_images/2024/03/IMG_9337-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266446/IMG_9337-768x1024_rtc5cb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359774/website_images/2024/03/IMG_9338-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266446/IMG_9338-768x1024_c3caz3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359987/website_images/2024/03/IMG_9340-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266446/IMG_9340-768x1024_uat8ta.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359980/website_images/2024/03/IMG_9344-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266447/IMG_9344-768x1024_fxdneb.jpg)
 
 ### Guan Gong Temple
 
@@ -446,15 +446,15 @@ He explained that in Japan, laws regulated building façades, to maintain unifor
 
 We ate a sweet tofu pudding made from bean powder at an eatery whose tables were repurposed elementary school desks, complete with a pen nook and a drawer. Then we walked to Film Street, where hand-drawn posters graced the old theater.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359858/website_images/2024/03/IMG_9349-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266447/IMG_9349-768x1024_hrudgk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359603/website_images/2024/03/IMG_9351-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266447/IMG_9351-768x1024_yrl0hv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359976/website_images/2024/03/IMG_9353-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266447/IMG_9353-768x1024_nmvexs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360019/website_images/2024/03/IMG_9354-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266448/IMG_9354-768x1024_m9ebei.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359560/website_images/2024/03/IMG_9355-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266448/IMG_9355-768x1024_jzhkwr.jpg)
 
 ### Snail Alley
 
@@ -464,11 +464,11 @@ The tiny 六興境保西宮 temple commemorated a tall, white and a short, black
 
 Behind the temple, Snail Alley was an old neighborhood with quiet and narrow alleys decorated with snail artworks.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359994/website_images/2024/03/IMG_9357-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266448/IMG_9357-768x1024_phalhf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359697/website_images/2024/03/IMG_9358-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266448/IMG_9358-768x1024_pnl2ne.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359706/website_images/2024/03/IMG_9361-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266448/IMG_9361-768x1024_qeng2e.jpg)
 
 ### Grand Mazu Temple
 
@@ -484,11 +484,11 @@ Outside the entrance to the temple, a priestess in gray robes stood with her arm
 
 _“Recently, some unknown persons have been staying in my palace under the disguise of spiritual practice, waiting for an opportunity to harass visitors. Dear virtuous people, please be careful and do not talk to them, to avoid being defrauded.”_
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359800/website_images/2024/03/IMG_9362-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266449/IMG_9362-768x1024_b6vhyu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359720/website_images/2024/03/IMG_9365-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266449/IMG_9365-768x1024_aegc98.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359610/website_images/2024/03/IMG_9368-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266449/IMG_9368-768x1024_lvmhu3.jpg)
 
 ### Tainan Lantern Festival - Anping Venue
 
@@ -502,17 +502,17 @@ Only a dome of glittering bamboo balls made me linger.
 
 We watched a brief fireworks and drone show at Lin Mo-Niang Park, named after a 16-meter-tall statue of Mazu.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359867/website_images/2024/03/IMG_9374-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266450/IMG_9374-768x1024_wtgu7n.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359720/website_images/2024/03/IMG_9372-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266449/IMG_9372-768x1024_ghrty1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359797/website_images/2024/03/IMG_9375-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266450/IMG_9375-768x1024_oa5gzf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359707/website_images/2024/03/IMG_9376-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266450/IMG_9376-768x1024_cie7bg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359680/website_images/2024/03/IMG_9378-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266450/IMG_9378-768x1024_qwjw0z.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359841/website_images/2024/03/IMG_9380-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266451/IMG_9380-768x1024_urrdq8.jpg)
 
 At 21:00, after taking the shuttle back, I finally enjoyed some alone time
 
@@ -560,11 +560,11 @@ Day 2 revolved around Tayouan, Taiwan’s first port, renamed Anping by Koxinga.
 
 The old fort was built as Fort Zeelandia by the Dutch in 1624, and rebuilt during the Occupation. The only remnants from the Dutch period were the southern brick walls. A surveillance post, ancient cannons, and a small museum with digital recreation imagery did not justify the cost of the ticket, in my opinion.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360056/website_images/2024/03/IMG_9399-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266451/IMG_9399-768x1024_bleqvv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359936/website_images/2024/03/IMG_9400-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266451/IMG_9400-768x1024_wjd3ka.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359758/website_images/2024/03/IMG_9402-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266451/IMG_9402-768x1024_jams9q.jpg)
 
 The treehouse was a vast improvement. First, at Zhu Jiu-Ying's residence, a calligrapher and former head of the Taiwan Salt Corporation, we practiced calligraphy. I learned that, since the character for eternity contained all the techniques, it was the first Taiwanese kids were taught.
 
@@ -574,13 +574,13 @@ It was also rapidly becoming a skyscraper city, with more and more erected to ac
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9404-1-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359695/website_images/2024/03/IMG_9405-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266452/IMG_9405-1-768x1024_opeuz1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359836/website_images/2024/03/IMG_9409-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266452/IMG_9409-1-768x1024_xb7oq1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359826/website_images/2024/03/IMG_9410-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266452/IMG_9410-1-768x1024_afuyy9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359662/website_images/2024/03/IMG_9413-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266452/IMG_9413-1-768x1024_o9pqna.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9415-1-768x1024.jpeg)
 
@@ -588,11 +588,11 @@ At the Old Street opposite Kaitai Tianhou temple, every vendor shoved samples of
 
 There were shops selling dried fruit like in the Middle East; I tried a red, spicy, baby mango. An egg roll, like a dried omelet, tasted as soft as a fresh batter. Fried shrimp rolls, the local specialty, were a delight just as soft; and an almond tofu pudding for dessert – with a perfectly gooey yet not slimy texture, red beans, and precisely the right amount of sweetness – struck me as the superior version of muhallebi.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359671/website_images/2024/03/IMG_9421-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266452/IMG_9421-1-768x1024_sgcbcr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359779/website_images/2024/03/IMG_9427-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266453/IMG_9427-1-768x1024_wwqpu1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359788/website_images/2024/03/IMG_9428-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266453/IMG_9428-1-768x1024_et72og.jpg)
 
 “Tainan is a foodie heaven,” I realized at the end of this meal. It unleashed a terrible onslaught on my wallet and stomach. From now on, I embarked on a mission to try all the local specialties.
 
@@ -600,13 +600,13 @@ There were two dozen or so, the most I’d encountered in one city. Why had no o
 
 The Taiwanese man took me to Deyang Battleship, a war ship turned museum, with statues of Transformers and minions. I declined to pay both for this and the Eternal Golden Fort Park, named after its yellow trees that would bloom a few weeks from now in March. As Taiwan's first modern, Western-style fortress, it was built in 1876 following the Mudan Incident, to protect against the Japanese; yet it hadn't survived, and now there was nothing inside to be seen.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360026/website_images/2024/03/IMG_9430-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266453/IMG_9430-768x1024_mwujwr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359643/website_images/2024/03/IMG_9431-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266453/IMG_9431-768x1024_ugfuxs.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359663/website_images/2024/03/IMG_9432-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266453/IMG_9432-768x1024_zpkxxe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359985/website_images/2024/03/IMG_9433-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266454/IMG_9433-1024x576_z6iemq.jpg)
 
 ### Sicao Green Tunnel
 
@@ -618,19 +618,19 @@ Trees bended over to reach for our wide straw hats. They gradually elongated to 
 
 Afterwards, inside the adjoining gallery, a mother-and-son whale skeletons were wrapped in red temple bows, like guardian lions.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359701/website_images/2024/03/IMG_9436-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266454/IMG_9436-1-768x1024_nzlkhx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360031/website_images/2024/03/IMG_9440-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266454/IMG_9440-1-768x1024_zpyich.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359614/website_images/2024/03/IMG_9453-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266454/IMG_9453-1-768x1024_tfog7u.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359716/website_images/2024/03/IMG_9455-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266454/IMG_9455-1-768x1024_ovlq9y.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359817/website_images/2024/03/IMG_9457-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266455/IMG_9457-1-768x1024_nip4gu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359718/website_images/2024/03/IMG_9484-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266457/IMG_9484-1024x576_vtpvq9.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359722/website_images/2024/03/IMG_9483-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266457/IMG_9483-1024x576_gd7ccq.jpg)
 
 ### Luermen Temple
 
@@ -640,31 +640,31 @@ It was the biggest temple I’d visited in Taiwan. Laid out like a Chinese palac
 
 It felt like a circus.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359812/website_images/2024/03/IMG_9458-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266455/IMG_9458-768x1024_ijbnpt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359847/website_images/2024/03/IMG_9459-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266455/IMG_9459-768x1024_qt8wby.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359858/website_images/2024/03/IMG_9460-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266455/IMG_9460-768x1024_empsj7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359873/website_images/2024/03/IMG_9464-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266455/IMG_9464-768x1024_bg1i0n.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359671/website_images/2024/03/IMG_9468-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266456/IMG_9468-768x1024_ufbpct.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359699/website_images/2024/03/IMG_9471-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266456/IMG_9471-768x1024_gtf2na.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359873/website_images/2024/03/IMG_9472-758x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266456/IMG_9472-758x1024_rezrbl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359869/website_images/2024/03/IMG_9473-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266456/IMG_9473-768x1024_mdx0ir.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359885/website_images/2024/03/IMG_9474-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266456/IMG_9474-768x1024_gf4d5n.jpg)
 
 ### Food Heaven
 
 Back in Tainan, we ate takeout egg cakes at The Spring, an abandoned-market-building-turned-public-park. A shallow pond and columns of the former edifice. Then, dinner at 17:00 was at another locals-only spot.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360005/website_images/2024/03/IMG_9479-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266457/IMG_9479-768x1024_jmhkgw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359908/website_images/2024/03/IMG_9480-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266457/IMG_9480-768x1024_qcr6fb.jpg)
 
 I was served a metallic bowl with a viscous brown soup drowning noodles and eels that had been freshly stir-fried at a tiny metallic kitchen station right in front of me. The simplest of eateries.
 
@@ -688,17 +688,17 @@ We grabbed star fruit juice (weirdly sour) and strolled around Shennong street, 
 
 Canopies of lanterns, hand-painted by local children, decorated the streets. Just in this month, like Korea in May. Puji temple, for example, was adorned with them and a yin-yang on the roof of its hall.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359734/website_images/2024/03/IMG_9486-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266457/IMG_9486-1-768x1024_o7405j.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359628/website_images/2024/03/IMG_9488-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266458/IMG_9488-768x1024_mxembr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359818/website_images/2024/03/IMG_9494-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266458/IMG_9494-768x1024_qarje6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359781/website_images/2024/03/IMG_9495-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266458/IMG_9495-768x1024_vdweuq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359665/website_images/2024/03/IMG_9498-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266458/IMG_9498-768x1024_oiulos.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359937/website_images/2024/03/IMG_9499-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266459/IMG_9499-768x1024_ca8ad8.jpg)
 
 **Today's highlights:** Anping treehouse; egg roll; fried shrimp rolls; almond tofu pudding; Sicao Green Tunnel; egg cakes; stir-fried eel noodles; strolling around lanterned Shennong at night.
 
@@ -734,13 +734,13 @@ Day 3 started with Tainan Judicial Museum, a former court built by the Japanese 
 
 We explored it for half an hour before joining a brief, guided tour to the restricted roof. I dressed as a judge and played inmate at an in-house prison cell.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359564/website_images/2024/03/IMG_9502-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266459/IMG_9502-768x1024_wdrqdz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359956/website_images/2024/03/IMG_9579-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266464/IMG_9579-576x1024_z05cin.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360001/website_images/2024/03/IMG_9580-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266465/IMG_9580-576x1024_o9xiwu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359850/website_images/2024/03/IMG_9581-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266465/IMG_9581-1024x576_ktkexz.jpg)
 
 ### Tainan Confucius Temple
 
@@ -756,23 +756,23 @@ Then we saw Chinese tourists in traditional Confucian costumes filming themselve
 
 “Yes.”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359613/website_images/2024/03/IMG_9511-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266459/IMG_9511-768x1024_xjuqel.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359967/website_images/2024/03/IMG_9513-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266459/IMG_9513-768x1024_ahpov7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359985/website_images/2024/03/IMG_9517-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266460/IMG_9517-768x1024_w5uq6e.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359705/website_images/2024/03/IMG_9518-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266460/IMG_9518-768x1024_kgf0qw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359699/website_images/2024/03/IMG_9521-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266460/IMG_9521-768x1024_pz51vn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359872/website_images/2024/03/IMG_9523-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266460/IMG_9523-768x1024_xoh7ft.jpg)
 
 Lunch in various eateries scattered in the area was meatballs inside giant dumplings with a delicious sweet chili and minced garlic sauce; pudding at a famous fruit stand; a pork bun; and quail eggs cooked in soy sauce.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359713/website_images/2024/03/IMG_9525-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266460/IMG_9525-768x1024_bznljf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359802/website_images/2024/03/IMG_9526-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266461/IMG_9526-768x1024_trgh7w.jpg)
 
 ### National Museum of Taiwanese Literature
 
@@ -790,11 +790,11 @@ Back then, colonial and martial-law regimes had forbidden discussion of social i
 
 Near the museum, in the Ginza of Tainan, stood Hayashi department store. It featured the first elevator in Taiwan… and a Shinto shrine on the roof.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359892/website_images/2024/03/IMG_9533-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266461/IMG_9533-768x1024_s5e4nj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359873/website_images/2024/03/IMG_9534-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266461/IMG_9534-768x1024_ot5fuf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359702/website_images/2024/03/IMG_9536-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266461/IMG_9536-768x1024_boplpr.jpg)
 
 We snacked on a cold and sweet mung bean soup with jelly – I wasn’t hungry at this point in Tainan anymore, but couldn’t refuse trying more and more dishes – before moving on to Tian Gong temple, Taiwan's oldest, built in 1854 to enshrine the Jade Emperor God. It was especially popular during the Chinese New Year.
 
@@ -808,11 +808,11 @@ It was a job to eat here. An evergreen foodie heaven, like Asakusa, Sapporo, Him
 
 More quick visits ensued. An obscure shrine without an English translation; Blueprint Culture & Creative Park. Then we took a local train to the HSR station venue of the Lantern Festival.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359775/website_images/2024/03/IMG_9541-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266461/IMG_9541-768x1024_jtptcm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359744/website_images/2024/03/IMG_9542-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266462/IMG_9542-768x1024_ecpwk0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359911/website_images/2024/03/IMG_9543-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266462/IMG_9543-768x1024_i6juca.jpg)
 
 ### Tainan Lantern Festival - HSR Station Venue
 
@@ -826,29 +826,29 @@ Once it grew dark, we checked out the lantern festival. It was too big.
 
 Animatronic dragons, animated characters, whales, exhibits from various countries… there were hundreds of paper lanterns there, too many to cover. Some recreated traditional imagery, like Luerman temple; others were fun and whacky, like Super Mario or SpongeBob. Japan was the country with the most stations.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359790/website_images/2024/03/IMG_9574-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266464/IMG_9574-1024x768_cwwnhy.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359933/website_images/2024/03/IMG_9547-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266462/IMG_9547-768x1024_i6c9lz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359944/website_images/2024/03/IMG_9563-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266463/IMG_9563-768x1024_aqfqjq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359639/website_images/2024/03/IMG_9576-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266464/IMG_9576-768x1024_nwhe2e.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359740/website_images/2024/03/IMG_9568-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266463/IMG_9568-768x1024_onnhhz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359645/website_images/2024/03/IMG_9561-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266463/IMG_9561-768x1024_idyl3g.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359626/website_images/2024/03/IMG_9565-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266463/IMG_9565-768x1024_vi7t3i.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360031/website_images/2024/03/IMG_9577-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266464/IMG_9577-768x1024_nt3y2k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359919/website_images/2024/03/IMG_9569-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266464/IMG_9569-768x1024_afw3wm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359915/website_images/2024/03/IMG_9554-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266462/IMG_9554-768x1024_pj4og6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359636/website_images/2024/03/IMG_9558-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266463/IMG_9558-768x1024_fbvxzh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359758/website_images/2024/03/IMG_9552-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266462/IMG_9552-768x1024_cciblj.jpg)
 
 When I returned to my hostel tired from three full days of nonstop sightseeing, awkward conversations, endless delicacies, and insufficient sleep, I realized something. During the past year, on this trip, I hadn’t been preoccupied with fantasies for the future or nostalgia for the past. I was fully immersed in my present.
 

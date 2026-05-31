@@ -60,7 +60,7 @@ After breakfast and two hours of preparing guest rooms, there was a ceremony at 
 
 Inside the hall, the two French guys served the audience hot amazake. The monk chanted nonstop while walking around, rubbing a wooden stick against the back of each of the fifty or so audience members against their back.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360804/website_images/2024/01/IMG_7635-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266131/IMG_7635-768x1024_cbif9w.jpg)
 
 ### Akazawa Village
 
@@ -76,17 +76,17 @@ After this, a representative from the largest medical company in Japan measured 
 
 Then we left the temple. Our van stopped in the middle of a highway, by a cliff dotted with shellfish fossils. Why were shellfish fossilized in the middle of a mountain range? We’d get the answer at the accommodation tonight.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360669/website_images/2024/01/IMG_7636-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266131/IMG_7636-1024x768_s1ohbf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360866/website_images/2024/01/IMG_7638-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266131/IMG_7638-768x1024_lhnrh4.jpg)
 
 We continued to Akazawa village, nestled between Minobu and Shichimen mountains. The buildings were so old here, that inn facades included planks with names of pilgrims who had stayed there. One inn and one café were still in operation.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360620/website_images/2024/01/IMG_7639-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266131/IMG_7639-768x1024_w836tm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360795/website_images/2024/01/IMG_7645-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266132/IMG_7645-768x1024_gkdi75.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360849/website_images/2024/01/IMG_7648-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266132/IMG_7648-768x1024_o7g0kw.jpg)
 
 ### Hagoromo Shiraito Waterfall
 
@@ -94,15 +94,15 @@ Back at the waterfall I’d visited before hiking Shichimen-san, I learned that 
 
 In 1608, she’d pleaded the shogun to spare Nichion Shonin, head monk of Kuon-ji temple, from crucifixion. In 1640, she’d hiked Shichimen-san, hitherto off-limits to women, and thus ended this ban.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360735/website_images/2024/01/IMG_7650-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266132/IMG_7650-768x1024_clcg9g.jpg)
 
 From here on, we drove to our accommodation for the night, an abandoned middle school turned hotel. A monkey passed us on the way.
 
 Each volunteer received a huge, private room with three beds.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360655/website_images/2024/01/IMG_7651-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266132/IMG_7651-1024x768_vx8xle.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360749/website_images/2024/01/IMG_7654-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266132/IMG_7654-768x1024_iletgo.jpg)
 
 ### Dondo-yaki Festival
 
@@ -112,23 +112,23 @@ Tonight was dondo-yaki: the burning of New Year’s decorations. The god Dosojin
 
 We roasted our mochi by the fire. It had no flavor whatsoever, but the texture was phenomenal, like roasted marshmallows. Throughout this, the villagers shoved sake and sweets into our full hands. A shishimai (kids dressed as a shishi lion) roared and blessed each of us. We socialized with the handful of local kids, and I wobbled back tipsy to the hotel. Stars were twinkling in the night sky.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360636/website_images/2024/01/C7732749-98D6-4FD5-9A73-2F88685C6AD8-769x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266006/C7732749-98D6-4FD5-9A73-2F88685C6AD8-769x1024_gx2xec.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360823/website_images/2024/01/9E644082-A78D-44C9-A2AA-5DF8B1B855D1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266002/9E644082-A78D-44C9-A2AA-5DF8B1B855D1_s22z99.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360661/website_images/2024/01/IMG_7659-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266133/IMG_7659-768x1024_zbs5ur.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360847/website_images/2024/01/IMG_7666-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266133/IMG_7666-768x1024_ddx93h.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360837/website_images/2024/01/864F2356-9BC8-4A21-AF61-7CF20958358D.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266004/864F2356-9BC8-4A21-AF61-7CF20958358D_uz6oou.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360611/website_images/2024/01/IMG_7667-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266133/IMG_7667-768x1024_xamzrh.jpg)
 
 Right after, dinner was served.
 
 It was as fancy as a ryokan’s. Konyaku jelly with miso sauce, grilled rainbow trout, Hot Food boar nabe (Yamanashi specialty) cooked over a burning stone. My first time trying boar; it was dry, chewy, and horrendous. Also on my plate: a giant, fried eel and wasabi ball. Dessert was yuzu peel and ice cream.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360797/website_images/2024/01/IMG_7670-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266133/IMG_7670-1024x768_dfxtkh.jpg)
 
 After dinner, we learned that Yamanashi and Nagano prefectures used to be a sea, hence the shellfish fossils.
 
@@ -166,9 +166,9 @@ Thank god the Buddha I’d come to volunteer at this temple.
 
 At 8:00, we measured our stress again. I kept getting yellow, borderline blue.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360746/website_images/2024/01/IMG_7674-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266133/IMG_7674-1-1024x768_lz3now.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360837/website_images/2024/01/IMG_7675-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266134/IMG_7675-768x1024_jflm66.jpg)
 
 After breakfast, we drove up a mountain to a place some referred to as the “Machu Pichu of Japan.” A dangerous, one-lane mountain road that reminded me of Shikoku led us to the tiniest community – not even a town or a village – high on a hill.
 
@@ -178,21 +178,21 @@ The sixty houses here were mostly vacant. One was a former elementary school. Ba
 
 We visited Shichimengun, the local temple-shrine, and entered the former school. Inside a tatami classroom, local elders had prepared green tea, amazake, and organic honey, over daikon and homemade dango. All the ingredients were grown and harvested by a talkative obaachan who kept saying, “Everyone, eat!”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360693/website_images/2024/01/IMG_7679-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266134/IMG_7679-768x1024_cywix0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360854/website_images/2024/01/IMG_7681-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266134/IMG_7681-768x1024_jzmgrj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360645/website_images/2024/01/IMG_7683-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266134/IMG_7683-768x1024_jolxgr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360622/website_images/2024/01/IMG_7684-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266134/IMG_7684-768x1024_xlsxaw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360824/website_images/2024/01/IMG_7686-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266135/IMG_7686-768x1024_zokjqm.jpg)
 
 More food was served afterwards, this time at a small soba restaurant down the mountain. Another tiny village, more unconventional food: the soba came in three layers of bowls, for three different toppings – daikon, mushrooms, and yuzu yam. In the end, we mixed the soba’s cooking water with the leftover sauce, to create a delicious soup. I’d only encountered this previously in Matsumoto, known for soba.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360622/website_images/2024/01/F9B40369-B2D8-4556-8DD3-713063E4CFAB-769x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266036/F9B40369-B2D8-4556-8DD3-713063E4CFAB-769x1024_m4frg5.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360641/website_images/2024/01/IMG_7687-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266135/IMG_7687-768x1024_yxeodl.jpg)
 
 ### Kuon-ji Temple
 
@@ -206,11 +206,11 @@ We were supposed to climb the Bodai to achieve enlightenment, but fortunately, r
 
 Memorials to the Hiroshima and Nagasaki atomic bombings, as well as 2011 Fukushima earthquake disaster, stood in the vicinity. The former included melted roof tiles from both cities.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360700/website_images/2024/01/IMG_7689-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266135/IMG_7689-768x1024_r7mskn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360638/website_images/2024/01/IMG_7690-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266135/IMG_7690-768x1024_fupy01.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360864/website_images/2024/01/IMG_7692-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266135/IMG_7692-768x1024_rvb51i.jpg)
 
 ### Small New Year's Feast
 
@@ -228,7 +228,7 @@ To exemplify this cuisine, we were served a recreation of Nichiren’s daily mea
 
 These were all bite-sized samples, all fresh, raw, and unseasoned. A modest meal for religious training. For me, it tasted like an appetizer.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360760/website_images/2024/01/IMG_7698-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266136/IMG_7698-768x1024_goj3fm.jpg)
 
 Right after, came the time for tonight’s Small New Year’s dinner. Osechi was the traditional food, a bento-like box with a minute arrangement of a dozen or so samples. A detailed illustration explained the ingredients and fortune of each.
 
@@ -264,9 +264,9 @@ Dessert was a bite-sized yuba and sakura mochi wrapped in a persimmon leaf.
 
 Three types of sake and three types of local wine accompanied this. One of the wines had been fermented for 16 years.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360768/website_images/2024/01/IMG_7703-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266136/IMG_7703-1-1024x768_dedqmr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360796/website_images/2024/01/IMG_7704-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266136/IMG_7704-1-1024x768_the92o.jpg)
 
 Mamacita, Leon, and I washed the dishes while the other volunteers, who had prepared all this for everyone, enjoyed the same food. In Japan, the fancier the meal, the more tiny, hand-painted containers it was served in. So it took us an hour or so to wash everything.
 
@@ -280,13 +280,13 @@ The taiko player progressed to a giant drum and beat it so ferociously, that my 
 
 Then he switched to a set of small drums, and played lightly with a grin. The junior monk joined the performance.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360690/website_images/2024/01/IMG_7710-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266136/IMG_7710-768x1024_mi0ven.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360739/website_images/2024/01/IMG_7717-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266137/IMG_7717-768x1024_wwsrpf.jpg)
 
 The volunteers and monitors got to chat with the performers afterwards, as well as try out the shamisen and taiko. It felt so liberating to beat a drum as forcefully as possible.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360796/website_images/2024/01/86777CB6-DE2D-48CB-809F-78AC751BF628.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266004/86777CB6-DE2D-48CB-809F-78AC751BF628_kaae0s.jpg)
 
 **Today's highlights:** a salty and sulphuric onsen; honey daikon and dango; soba soup; a Buddhist meal; a New Year's feast (particularly Akebono natto and yuba chips); beating taiko drums.
 
@@ -308,7 +308,7 @@ At 5:30, in freezing cold and pitch darkness, we shivered outside the temple’s
 
 I’d never seen a monk toll a bell like this. He repeated this for a total of six times.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360836/website_images/2024/01/IMG_7732-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266137/IMG_7732-768x1024_qxfxrm.jpg)
 
 Then, twenty monks in black robes and masks crossed the verandas of the multiple halls in a procession, chanting. At the far end of this stood the main hall, the largest I’d visited.
 
@@ -326,7 +326,7 @@ Two huge pots contained soybeans that had been fermenting for the past three day
 
 It was an enjoyable and informative experience. I’d never realized that miso was made from soybeans.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360822/website_images/2024/01/IMG_7745-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266137/IMG_7745-768x1024_nzyxj8.jpg)
 
 Lunch was served in the temple’s private villa, next door to the temple’s café. It contained rooms both out of a ryokan and an English house. A fainting couch, a cutting-edge kitchen, stylish black toilets, and a yard with a frozen stream. I ate a cheese and vegetable doria curry at the dining room. My final stress measurement came out orange.
 
@@ -342,11 +342,11 @@ I mentioned my desire to find a job in tourism, and my recent job interview in K
 
 “I am not interested in hearing this kind of information,” he said. So that was it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360860/website_images/2024/01/IMG_7746-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266137/IMG_7746-768x1024_j5p6qe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360629/website_images/2024/01/IMG_7747-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266137/IMG_7747-768x1024_v1ghrt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360763/website_images/2024/01/IMG_7748-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266138/IMG_7748-768x1024_o88ez5.jpg)
 
 I returned to the temple and stuffed some natto rice into my mouth. Fancy food wasn’t exactly plentiful. Yet I rejoiced over my decision to volunteer here and cancel the silent retreat. Living at a temple; sleeping and eating a lot for a change, without worrying about money; bonding with volunteers; and receiving a luxurious, free trip with people from the travel industry, that might lead to a job opportunity. Japan felt exciting again.
 
@@ -414,7 +414,7 @@ Breakfast today included croissant. The French guys had been baking it for the p
 
 The result melted in my mouth. They used quite a lot of sugar and butter, obviously, but not as much as in Parisian bakeries.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360728/website_images/2024/01/IMG_7763-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266138/IMG_7763-768x1024_ul7vin.jpg)
 
 With no guests whatsoever, today was the slowest one yet. We finished cleaning after a mere hour. So I helped the obaachans cook in the kitchen, did laundry, and rested. Everyone, whether volunteers or working holiday, finished their shift after three hours.
 
@@ -426,19 +426,19 @@ In the afternoon, Mamacita unsheathed her professional camera for a photo shoot 
 
 The pictures turned out skillful and mystical. I’d never rented a kimono and taken brooding, atmospheric photos of myself in Kyoto, so this was a welcome alternative.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360719/website_images/2024/01/IMG_7773-1-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266138/IMG_7773-1-576x1024_ohhgq7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360646/website_images/2024/01/IMG_7778-1-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266139/IMG_7778-1-576x1024_lzn8ye.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360743/website_images/2024/01/IMG_7774-1-576x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266138/IMG_7774-1-576x1024_gjbu9h.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360833/website_images/2024/01/IMG_7779-1-1024x683.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266139/IMG_7779-1-1024x683_ydefnr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360726/website_images/2024/01/IMG_7780-1-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266139/IMG_7780-1-1024x576_grexg8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360708/website_images/2024/01/IMG_7776-1-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266139/IMG_7776-1-1024x576_krxrpt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360701/website_images/2024/01/IMG_7781-1-1024x576.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266139/IMG_7781-1-1024x576_gmpube.jpg)
 
 Back in the kitchen, I decorated bite-sized yuba with Sakura mochi. Dinner was as delicious as ever: tofu and cheese croquette, grilled vegetables (lotus root, carrot, potato), and lettuce salad.
 
@@ -522,15 +522,15 @@ At some point, Becky suggested spreading some hummus on fried natto. The ultimat
 
 Then Okami-san unsheathed a bottle of 500-year-old olive oil for the occasion. It offered a strong and rich taste. My taste buds were singing: this dinner was a fine way to bid farewell to the temple.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360781/website_images/2024/01/IMG_7785-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266140/IMG_7785-768x1024_dvdkwg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360791/website_images/2024/01/IMG_7786-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266140/IMG_7786-768x1024_oldgkd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360832/website_images/2024/01/IMG_7788-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266140/IMG_7788-768x1024_xpyaaj.jpg)
 
 At night, the volunteers joined Okami-san and her family at a karaoke down the road, near the café. We crossed a dark and sleepy Buddhist town to a house with neither a sign outside nor a hint of a party going on inside.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360661/website_images/2024/01/IMG_7789-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266140/IMG_7789-768x1024_oyipjm.jpg)
 
 Beer, pistachios, steamed octopus, fruit, and chocolates. As usual, I gorged myself, singing my heart out. Especially funny was when no one joined me in rapping Nicki Minaj. We returned after two hours to the temple, near midnight.
 

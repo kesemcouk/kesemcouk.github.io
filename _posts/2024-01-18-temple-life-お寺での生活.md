@@ -71,11 +71,11 @@ Next, we scoured dozens of boxes with traditional porcelain, old yet pretty, for
 
 By 12:30, we created a shop full of second-hand tableware.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360699/website_images/2024/01/IMG_7516-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266120/IMG_7516-768x1024_rnyd2e.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7509-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360757/website_images/2024/01/IMG_7510-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266119/IMG_7510-768x1024_yyyxsd.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7511-768x1024.jpeg)
 
@@ -97,9 +97,9 @@ With wooden debris all over our garments, the French guys and I returned to the 
 
 At 16:00, we returned to the temple. I washed all my loot and clothes, and wrote in the staff room. Then we made pizza for dinner. I was surprised to learn that meals at this temple included animal products, whether meat, fish, cheese, and eggs.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360803/website_images/2024/01/IMG_7518-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266120/IMG_7518-1-768x1024_pwar38.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360638/website_images/2024/01/IMG_7521-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266120/IMG_7521-768x1024_ji2fvy.jpg)
 
 After my timeslot for the private bath, I went to the staff room for some privacy. A storage room for sheets, towels, blankets, and laundry baskets, there was also a dusty and messy corner with a massage chair, a low table, a kerosene heater, and a short, hard futon. Like the last two days, tonight ended with an emotionally draining and argumentative phone call to my family in Israel, full of shouting and tears.
 
@@ -153,33 +153,33 @@ Even though this bath could accommodate three people, the temple had chosen to m
 
 After lunch (spaghetti with tomato sauce…), Mamacita and I walked ten minutes to Kuon-ji, the main temple in town. Some of the halls surprised me with their vermilion-colored extravagance. The colorful murals, painted red, green, and turquoise, reminded me of dancheong, the decorative style of Korean palaces. The view of the mountain range was quite pretty, too.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360624/website_images/2024/01/IMG_7522-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266120/IMG_7522-768x1024_oqk7sh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360865/website_images/2024/01/IMG_7523-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266120/IMG_7523-768x1024_axan2z.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360779/website_images/2024/01/IMG_7525-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266121/IMG_7525-1024x768_tjv3k7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360635/website_images/2024/01/IMG_7526-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266121/IMG_7526-768x1024_rtidni.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360858/website_images/2024/01/IMG_7527-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266121/IMG_7527-768x1024_qhbznf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360725/website_images/2024/01/IMG_7528-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266121/IMG_7528-768x1024_sthliw.jpg)
 
 The complex was big and quiet. We listened to a monk praying and descended the notoriously steep and endless staircase back to town, where we browsed the handful of shops.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360760/website_images/2024/01/IMG_7529-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266121/IMG_7529-768x1024_q3ynqw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360856/website_images/2024/01/IMG_7530-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266122/IMG_7530-768x1024_uytwbm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360646/website_images/2024/01/IMG_7532-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266122/IMG_7532-768x1024_umwf7j.jpg)
 
 In the afternoon, with nothing else to do around Minobu-san, I helped prepare dinner. I washed heaps of rice (apparently three times weren’t enough?!), did the dishes, and set the table. Dinner was grilled salmon, a salad, and rice, plus homemade mochi from New Year’s for dessert.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360818/website_images/2024/01/IMG_7533-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266122/IMG_7533-768x1024_q0gvw3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360869/website_images/2024/01/IMG_7534-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266122/IMG_7534-768x1024_lta2qe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360788/website_images/2024/01/IMG_7535-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266123/IMG_7535-1024x768_lzpyco.jpg)
 
 No sooner had we finished eating than Papacito and the junior monk each brought out a Nintendo Switch. We played Smash Bros and Mario Kart. I missed my bath time just to keep playing with them.
 
@@ -191,7 +191,7 @@ No sooner had we finished eating than Papacito and the junior monk each brought 
 
 Today’s shift lasted until 13:30. An hour of cleaning the temple, with barely any rooms to change, was followed by three hours of purging the temple’s cemetery. We raked branches and dead leaves, filled buckets, and transported them on a wheelbarrow, to throw the trash over a hill.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360768/website_images/2024/01/IMG_7536-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266123/IMG_7536-1024x768_lpfi1l.jpg)
 
 Lunch didn’t feature a vegetarian option, so I ate a small dish of natto rice.
 
@@ -199,7 +199,7 @@ Afterwards, I passed the time doing dishes and exploring Japanese learning metho
 
 For dinner, I baked jacket potatoes, topped with red kidney beans and grated cheese. Even though Japanese potatoes were too tiny to be stuffed, I enjoyed the flavor so much, that it transported me back to my time in England. A cheap, easy, and healthy dish: the British natto.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360825/website_images/2024/01/IMG_7537-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266123/IMG_7537-768x1024_wfcjxo.jpg)
 
 Tomorrow, for my two days off, I’d climb a nearby mountain, and stay at a temple known for its view of Mt Fuji. The staff at my current temple informed me that a few weeks ago, some guests had climbed this mountain as a day trip. Night had fallen, yet they hadn’t returned. At 3:00 am, the temple had called the police.
 
@@ -237,9 +237,9 @@ I’d had enough of remote, Buddhist mountains at dusk with no soul on the trail
 
 Two buses and one cab later, I glimpsed a waterfall near the entrance to the south trail, and started hiking at 12:30.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360665/website_images/2024/01/IMG_7542-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266123/IMG_7542-768x1024_gupjym.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360830/website_images/2024/01/IMG_7543-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266124/IMG_7543-768x1024_yxbdub.jpg)
 
 “Don’t get lost,” I repeated in my head.
 
@@ -257,17 +257,17 @@ It was dead quiet.
 
 I had a few rice crackers and sweets in my bag. My fingers hurt and shook from the cold as I unwrapped my snacks. But I thoroughly enjoyed this respite. It had been a while since I’d had a moment to myself on a mountain deep in nature.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360846/website_images/2024/01/IMG_7544-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266124/IMG_7544-768x1024_kzly7d.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360612/website_images/2024/01/IMG_7545-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266124/IMG_7545-768x1024_b2tnci.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360757/website_images/2024/01/IMG_7546-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266125/IMG_7546-1024x768_qgzi6s.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360791/website_images/2024/01/IMG_7555-773x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266125/IMG_7555-773x1024_gyljjo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360618/website_images/2024/01/IMG_7556-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266125/IMG_7556-768x1024_ukoti1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360770/website_images/2024/01/IMG_7560-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266125/IMG_7560-768x1024_i070ff.jpg)
 
 After ten minutes, I forced myself back up. Two minutes of climbing, and I arrived at the temple.
 
@@ -283,39 +283,39 @@ I entered the bath soon after. It was small and unventilated. To preserve the pu
 
 Out in the hallway, faucets dribbled 24/7, to prevent pipes from freezing.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360787/website_images/2024/01/IMG_7563-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266126/IMG_7563-768x1024_npfea5.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360819/website_images/2024/01/IMG_7565-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266126/IMG_7565-1024x768_eftjma.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360792/website_images/2024/01/IMG_7567-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266126/IMG_7567-768x1024_ucsdtb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360661/website_images/2024/01/IMG_7568-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266126/IMG_7568-768x1024_etd9ws.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360831/website_images/2024/01/IMG_7569-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266126/IMG_7569-768x1024_kmize7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360816/website_images/2024/01/IMG_7572-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266127/IMG_7572-1024x768_fgqvlj.jpg)
 
 At 16:30, the only other guests (a group of three elderly Japanese) and I headed to the temple’s snowy cliff, to watch the sun set over Fuji-san. Deer were roaming the temple grounds.
 
 The cliff offered an arresting view of the mountain, made atmospheric by shadowy silhouettes and a wooden gate. I also got to enjoy snow again. The adjacent Ichi-no-ike pond was frozen solid.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360618/website_images/2024/01/IMG_7578-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266127/IMG_7578-768x1024_otdxou.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360759/website_images/2024/01/IMG_7583-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266127/IMG_7583-768x1024_we0v9m.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360766/website_images/2024/01/IMG_7590-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266127/IMG_7590-768x1024_gyzkml.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360699/website_images/2024/01/IMG_7592-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266127/IMG_7592-768x1024_lecuwn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360762/website_images/2024/01/IMG_7594-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266128/IMG_7594-768x1024_woh2wu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360862/website_images/2024/01/IMG_7601-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266128/IMG_7601-768x1024_ywxn77.jpg)
 
 At 17:00, dinner was served in my room. Miso soup in a bucket and rice in a cooker-like container. A first for me, in quantities meant for a group rather than one person. The rest of the meal included sake, pickled goods, and a mikan.
 
 A monk handed me a piece of paper with a prayer that we read together, very slowly because it was quite difficult to understand. A bit like the Christian “Dear God, thank you for the food on our plates, amen.”
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360747/website_images/2024/01/img_7766-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266138/img_7766-768x1024_wkvkcr.jpg)
 
 Midway through my dinner, another monk put a warm bottle inside my futon, to sleep with during the night.
 
@@ -329,9 +329,9 @@ Perhaps I would always think about a special someone, once I met them. I could k
 
 At least I was feeling something.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360820/website_images/2024/01/IMG_7602-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266128/IMG_7602-768x1024_ylokiv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360645/website_images/2024/01/IMG_7603-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266128/IMG_7603-768x1024_pzmluv.jpg)
 
 ### Evening Prayer
 
@@ -373,11 +373,11 @@ I warmed up next to the heater until 6:00 with green tea. The morning prayer at 
 
 At 6:45, the Japanese guests and I excused ourselves to watch the sun rise over Fuji-san. It emerged from a sea of clouds to a strip of orange.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360814/website_images/2024/01/IMG_7606-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266128/IMG_7606-768x1024_iorhcm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360854/website_images/2024/01/IMG_7612-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266129/IMG_7612-768x1024_kzlwba.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360644/website_images/2024/01/IMG_7614-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266129/IMG_7614-768x1024_vrttzy.jpg)
 
 On the spring and fall equinoxes, the sun rose from the crater of Fuji-san.
 
@@ -395,11 +395,11 @@ I checked out at 8:00 and hurried down the trail.
 
 It led me to Okuno-in temple, where a deer stood by a huge boulder and stared at me. It was snowing so slightly, that no camera could capture it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360629/website_images/2024/01/IMG_7617-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266129/IMG_7617-768x1024_zj5atm.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/01/IMG_7619-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360798/website_images/2024/01/IMG_7626-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266129/IMG_7626-768x1024_iwa5al.jpg)
 
 I hurried down the trail. It was steep and narrow, enough for just one person. No hikers whatsoever. Instead, deer scurried away from me.
 
@@ -411,15 +411,15 @@ At 9:15, after crossing the abandoned Anjubo rest area, things got even steeper.
 
 At least I had a walking stick. I finished at 10:15, with enough time to make it to the bus.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360708/website_images/2024/01/IMG_7627-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266129/IMG_7627-768x1024_yjse1e.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360817/website_images/2024/01/IMG_7628-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266130/IMG_7628-768x1024_vonml8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360648/website_images/2024/01/IMG_7629-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266130/IMG_7629-768x1024_wuz7el.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360800/website_images/2024/01/IMG_7631-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266130/IMG_7631-768x1024_mgkta1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360760/website_images/2024/01/IMG_7632-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266130/IMG_7632-768x1024_veqorp.jpg)
 
 At the bus stop, a hiker with all-black climbing gear, a hat, and a huge backpack greeted me.
 
@@ -433,7 +433,7 @@ I returned to the temple where I was volunteering just in time for lunch (vegeta
 
 Then, a 4.5-hour afternoon nap ended just in time for dinner. Tonight we cooked our own okonomiyaki and monja: I couldn’t have been happier that I’d returned for that. The homemade version of those always tasted better. Plus, we added seafood, kimchi (who knew okonomiyaki could be paired with kimchi?), and tons of grated cheese.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360699/website_images/2024/01/IMG_7634-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266131/IMG_7634-768x1024_hvyqpv.jpg)
 
 I heard that after my departure, snow had fallen on Shichimen-san so much, that within two hours, Keishin-in was covered in a blanket of white.
 

@@ -51,13 +51,13 @@ The exhibition continued with Byzantine mosaics and paintings of the city of Rom
 
 Funnily enough, the exhibition’s shop sold pasta, olive oil, and Italian spreads such as tomato, olive, and pesto.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361208/website_images/2023/11/img_5039.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266527/img_5039_k0tton.jpg)
 
 A temporary exhibition called Ueno Artist Project 2023: Picturing and Touching was free with my ticket. It featured six artists who had dedicated decades to a single subject matter. Drawings of mushrooms and wildflowers; bird caving; photos of thoroughbreds; woodblock prints of cows; and paintings of gorillas with medieval gold background.
 
 Ueno Park was as busy as usual when I’d left, with beginnings of kouyou. So were the grounds around the imperial palace, right next to my next museum.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360945/website_images/2023/11/img_5040-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266103/img_5040-1024x768_p5mavg.jpg)
 
 ### Museum of Modern Art, Tokyo
 
@@ -83,9 +83,9 @@ Those were the artworks that spoke to me. Overall, the fall collection was a bit
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5041-scaled.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361248/website_images/2023/11/img_5043-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266449/img_5043-scaled_cp7li2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361201/website_images/2023/11/img_5044-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266081/img_5044-1024x768_k3xlvc.jpg)
 
 I returned to the cafe 1.5 hours before my shift, so late lunch was kitsune udon in Hanamaru next door.
 
@@ -317,11 +317,11 @@ I ate a pita with hummus, falafel, tahini, and a salad. It was 100% exactly the 
 
 Complimentary dessert was a mint tea (the usual one in Israel) and chocolate.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361005/website_images/2023/11/img_5054-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266395/img_5054-scaled_jepiai.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361020/website_images/2023/11/img_5053.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266564/img_5053_jsibd2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361137/website_images/2023/11/img_5055-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266124/img_5055-scaled_rtj3xp.jpg)
 
 I chatted with the owner after. His hometown was so close to mine, that he’d walk to the nature reserve close to my house as a child, the same one I’d hiked to on a regular basis.
 
@@ -351,9 +351,9 @@ Museums, movies, cafés – he didn’t go without a friend.
 
 I thought he was making a bigger deal out of this than me. But I appreciated him nonetheless. He piqued my interest.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361088/website_images/2023/11/img_5057.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266514/img_5057_rsoczz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361103/website_images/2023/11/img_5058-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266153/img_5058-scaled_sgoza9.jpg)
 
 Then I noticed him replying to messages on a couple of dating apps.
 
@@ -427,9 +427,9 @@ We ordered expensive sushi without keeping track of the price. Toriton was alrea
 
 He insisted on paying in the end. Lucky I had some bills to shove in his hand.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361074/website_images/2023/11/img_5061-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266154/img_5061-scaled_loeiip.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360967/website_images/2023/11/img_5063-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266103/img_5063-1024x768_a6k1mq.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/05/IMG_5280-1024x770.jpeg)
 

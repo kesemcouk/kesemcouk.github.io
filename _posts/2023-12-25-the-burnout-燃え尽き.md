@@ -143,7 +143,7 @@ Matsuyama castle soared on top of Katsuyama hill (132 meters). It was one of the
 
 I lingered instead at the free samurai armour experience, where I got to dress up. Two guys from my hostel had brought a pocket sword to play around with.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365147/website_images/2023/12/img_6911-767x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266088/img_6911-767x1024_ubdmwi.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6916-768x1024.jpg)
 
@@ -171,7 +171,7 @@ Back in my hostel, I cooked lunch and racked my brain, trying to plan my next fe
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6936-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365181/website_images/2023/12/img_6937-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266089/img_6937-768x1024_uxg8ti.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6938-768x1024.jpg)
 
@@ -207,7 +207,7 @@ By the second bridge, I left winter, and returned to blue skies.
 
 The islands were green, the sea was sparkling, and the villages were humble. What a nostalgic ride. I almost wanted to cycle through this archipelago again. Then I recalled how much my butt had hurt.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365151/website_images/2023/12/img_6947-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266089/img_6947-768x1024_jiiyir.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6950-768x1024.jpg)
 
@@ -231,7 +231,7 @@ An unusual stone arch led to Jiko-ji. Then Komyo-ji, Kaifuku-ji, Hodo-ji, and Te
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6964-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365063/website_images/2023/12/img_6968-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266115/img_6968-768x1024_hhmcuv.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_6971-768x1024.jpg)
 
@@ -307,7 +307,7 @@ It felt absurd to complain about company and attention. I’d always been in wan
 
 I woke frequently throughout the night and didn’t sleep enough. In my languor, time moved too fast, until I found myself rushing to Onomichi station, buying the chocolate momiji manju last night’s fisherman had raved about, and making it to the train just in time.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364990/website_images/2023/12/img_7043-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266091/img_7043-768x1024_xrrpig.jpg)
 
 Kurashiki was a stopover on the way to Izumo, my destination for tonight. Maddeningly enough, despite being located northwest of Onomichi, the best way to get to Izumo by public transportation was to travel east first to Kurashiki.
 
@@ -319,7 +319,7 @@ The old district featured canals and ancient houses turned quirky shops, selling
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7014-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365120/website_images/2023/12/img_7022-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266105/img_7022-768x1024_bo3dde.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7046-768x1024.jpg)
 
@@ -333,9 +333,9 @@ I settled on a denim ice cream made of blueberry and rum. It smelled intoxicatin
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7024-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365191/website_images/2023/12/img_7029-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266090/img_7029-768x1024_fqpgii.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364945/website_images/2023/12/img_7048-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266089/img_7048-768x1024_qhlddx.jpg)
 
 Back in Kurashiki station, I bought lunch at 7/11. It was my first time entering a konbini in around three weeks. Lately, I’d developed the habit of seeking supermarkets for their evening discounts, in addition to cooking my own rice. Without realizing so, I’d grown weary of konbini onigiri.
 
@@ -409,11 +409,11 @@ Other than that, the shrine grounds were serene, at least until a group tour of 
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7061-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365062/website_images/2023/12/img_7063-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266106/img_7063-768x1024_lutwq3.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7067-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365179/website_images/2023/12/img_7069-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266106/img_7069-768x1024_giwumd.jpg)
 
 There was a tiny museum inside the shrine grounds that displayed remains of ancient pillars that had once supported it. Apparently, in the 7th century, only Izumo Oyashiro, another hall, had stood 48 meters high on a beach. There were no shrine grounds. It was the tallest building in Japan during the Heian period. A long and formidable staircase had led up to it, akin to ziggurats.
 
@@ -423,7 +423,7 @@ Like Omiwa shrine in Sakurai, also claimed to be the oldest in Japan, the innerm
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7070-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365058/website_images/2023/12/img_7076-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266114/img_7076-768x1024_lubvou.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7077-768x1024.jpg)
 
@@ -445,7 +445,7 @@ The view was underwhelming. Matsue was quite the boring and unattractive city.
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7080-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365156/website_images/2023/12/img_7082-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266091/img_7082-768x1024_b1obab.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/12/img_7083-768x1024.jpg)
 
@@ -489,11 +489,11 @@ I received a double-sized booth with two computers, two chairs, and two pillows 
 
 All it took was a blanket that fit an actual adult, and this café would’ve doubled as a manga hotel. Oh, and no light and music after midnight. A net café nuisance.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364962/website_images/2023/12/img_7094-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266105/img_7094-768x1024_xjke9r.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365181/website_images/2023/12/img_7096-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266105/img_7096-768x1024_szeshz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364979/website_images/2023/12/img_7095-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266090/img_7095-768x1024_l5frdl.jpg)
 
 The only caveats:
 
@@ -575,17 +575,17 @@ A Kyoto-style moss garden with hair cap moss, a pond garden… and the best dry 
 
 All of this seemed quite different to dry landscape gardens at temples. Here, it was very pretty. There, it was very emptying. I felt that the goal in Adachi was aesthetic, rather than meditative.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365057/website_images/2023/12/img_7101-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266114/img_7101-768x1024_uwqvda.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364983/website_images/2023/12/img_7102-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266115/img_7102-768x1024_ttixec.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769365006/website_images/2023/12/img_7104-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266090/img_7104-768x1024_yqrk4m.jpg)
 
 The exhibition continued with bizarre, infantile paintings, as if drawings out of children’s books. A framed window in an alcove overlooking a waterfall was dubbed a Living Hanging Scroll. (Maybe if a flimsy, see-through, thin fabric with faint contours matching the background was hung there…)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364976/website_images/2023/12/img_7108-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266064/img_7108-768x1024_ut2zbe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769364969/website_images/2023/12/img_7109-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266106/img_7109-768x1024_j4zcoc.jpg)
 
 I hated to admit it, but for such a prestigious museum with dozens of nihonga on display, nothing spoke to me. Maybe Mountain Scenery by Yuki Somei (1930), where clouds engulfed mountain peaks.
 

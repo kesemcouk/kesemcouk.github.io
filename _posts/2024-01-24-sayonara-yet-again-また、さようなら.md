@@ -56,7 +56,7 @@ As always, it was better to end something while wanting more, than to denounce i
 
 I ate breakfast at 6:30 and took the long-distance bus to Shinjuku with Papacito. I’d chosen to stay another day at the temple and take the bus with him to spend more time together.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360793/website_images/2024/01/IMG_7791-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266140/IMG_7791-768x1024_nbh8gq.jpg)
 
 Shinjuku and Shibuya stations were strangely quiet. There were people, but not that many. It was always a frenzy, trying to cross the flood of passengers. One couldn’t even stand still. But now it was sane.
 
@@ -64,7 +64,7 @@ Perhaps a late January weekday was the least busy time of the year. The weather 
 
 We went souvenir shopping at Donki. Then, at a bookshop, I found an abridged copy of the Tales of Genji with the Japanese text and an English translation side by side. It cost too much, but as a student of Japanese and a writer, I couldn’t not pass on the most important novel in Japanese history, and the first novel in history. I’d even visited its museum in Uji.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360800/website_images/2024/01/IMG_7802-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266141/IMG_7802-768x1024_tmrk0t.jpg)
 
 At 14:30, Papacito had to leave for his flight. He kept repeating how unreal it felt to leave this country.
 
@@ -102,9 +102,9 @@ We had Teishoku for dinner at a local restaurant with Moki, a half Japanese, hal
 
 Knowing my natto addiction, Saki suggested ordering a natto omelette, which was apparently a thing that existed. Good, yet slightly weird.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360845/website_images/2024/01/IMG_7803-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266141/IMG_7803-1024x768_f6lbyt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360717/website_images/2024/01/IMG_7804-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266141/IMG_7804-768x1024_c1rzm9.jpg)
 
 After dinner, I sorted my luggage at Saki’s apartment. He’d been safekeeping a carry-on for me ever since May. I gave him my winter clothes in exchange for my summer clothes.
 
@@ -142,21 +142,21 @@ Without a doubt, the best matcha ice cream in Japan.
 
 I crossed the wonderfully red and ever-busy Senso-ji temple. People in kimonos lavisher than mine. The old-school shopping avenue and Tokyo Skytree towering in the background.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360768/website_images/2024/01/IMG_7805-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266141/IMG_7805-768x1024_kzxzug.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360807/website_images/2024/01/IMG_7806-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266141/IMG_7806-768x1024_zloi0u.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360823/website_images/2024/01/IMG_7808-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266142/IMG_7808-768x1024_sbkd5w.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360640/website_images/2024/01/IMG_7809-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266142/IMG_7809-768x1024_os7mqm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360698/website_images/2024/01/IMG_7810-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266142/IMG_7810-768x1024_exdous.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360767/website_images/2024/01/IMG_7812-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266142/IMG_7812-768x1024_bllh8w.jpg)
 
 Then I grabbed a taiyaki from my favourite taiyaki chain and ate a konbini lunch by Sumida River, as I’d done with the German girl from Korea on August 3. Since when did Lawson sell a conger eel and cucumber sushi roll? Asakusa, alongside Shin-Okubo, was to me an evergreen foodie spot in Tokyo. Previous visits had included black squid ink monja; high-end onigiri; and the best melonpan in Japan.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360614/website_images/2024/01/IMG_7815-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266142/IMG_7815-1024x768_cjxuaj.jpg)
 
 ### Yanaka Cemetery
 
@@ -202,11 +202,11 @@ I found the bench where I’d had a manju picnic. Sunny, windy, nipping, quiet.
 
 Once again, with my coat and gloves at Saki’s, I was shivering uncontrollably. Crows were cawing around me, flying above flowers and tombstones.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360730/website_images/2024/01/IMG_7817-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266143/IMG_7817-768x1024_wtrhz3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360852/website_images/2024/01/IMG_7821-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266143/IMG_7821-768x1024_ncxctr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360811/website_images/2024/01/IMG_7822-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266143/IMG_7822-768x1024_tcjcte.jpg)
 
 I put on Paper Bag. The lyrics held a lot of meaning for me.
 
@@ -238,7 +238,7 @@ I watched clouds drift slowly while waiting for sunset. There were too many thin
 
 <figure>
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360692/website_images/2024/01/IMG_7358-1.jpg)![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360627/website_images/2024/01/IMG_7894.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266394/IMG_7358-1_uihcsr.jpg)![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266492/IMG_7894_tnasks.jpg)
 
 <figcaption>
 

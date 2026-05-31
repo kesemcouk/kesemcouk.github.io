@@ -245,7 +245,7 @@ Dinner at 17:45 was so delicious, that despite being full, I asked for second he
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9891-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359679/website_images/2024/03/IMG_9894-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266480/IMG_9894-768x1024_nl68kq.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9895-768x1024.jpeg)
 

@@ -25,7 +25,7 @@ In chapter 6, I...
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361890/website_images/2023/01/Chapter-6-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266019/Chapter-6-picture-1-768x1024_s5zdlj.jpg)
     
     <figcaption>
     
@@ -37,7 +37,7 @@ In chapter 6, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361732/website_images/2023/01/Chapter-6-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266019/Chapter-6-picture-2-768x1024_ztm9kx.jpg)
     
     <figcaption>
     
@@ -49,7 +49,7 @@ In chapter 6, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361749/website_images/2023/01/Chapter-6-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266020/Chapter-6-picture-3-768x1024_v2zck2.jpg)
     
     <figcaption>
     
@@ -107,9 +107,9 @@ I wonder what my fourteen-year-old self would have said, if he’d known he woul
 
 A few months after this entry, on 21 July 2009, I took a picture of Wilhelmina and edited myself into it.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361853/website_images/2023/01/2009.07.21-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266003/2009.07.21-1_v0kp5o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361838/website_images/2023/01/2009.07.21-2.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266003/2009.07.21-2_rcives.jpg)
 
 As for that last bit with the lame book idea: I never pursued it. Me, writing an autobiography? I was always more interested in the unknown. Plus, I never thought anyone would care.
 

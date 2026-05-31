@@ -29,7 +29,7 @@ The first entry of this chapter, from 23 May 2009, is too long and irrelevant fo
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361766/website_images/2023/01/Chapter-10-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266025/Chapter-10-picture-1-768x1024_vmjqpb.jpg)
     
     <figcaption>
     
@@ -41,7 +41,7 @@ The first entry of this chapter, from 23 May 2009, is too long and irrelevant fo
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361925/website_images/2023/01/Chapter-10-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266026/Chapter-10-picture-2-768x1024_fyefty.jpg)
     
     <figcaption>
     
@@ -53,7 +53,7 @@ The first entry of this chapter, from 23 May 2009, is too long and irrelevant fo
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361911/website_images/2023/01/Chapter-10-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266026/Chapter-10-picture-3-768x1024_t6cwt3.jpg)
     
     <figcaption>
     

@@ -13,7 +13,7 @@ coverImage: "Japan-South-Korea-and-Taiwan.png"
 
 ### Japan: Round One
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360197/website_images/2024/05/Japan-Round-One-150x150.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266481/Japan-Round-One-150x150_vclatx.png)
 
 In February 2023, after studying Japanese since the age of twelve, I travelled to Japan.
 
@@ -51,7 +51,7 @@ I had no guarantee that I would be alive a year from now, nor be able to afford 
 
 ### South Korea
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360175/website_images/2024/05/South-Korea-697x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266487/South-Korea-697x1024_kekbnm.png)
 
 In May 2023, I flew to South Korea on a whim, without knowing anything about it, for three months. I hopped from attractions to festivals and mountains in Seoul, elated to explore uncharted territory and not know what tomorrow had in store. But the latter point also distressed me, because lack of prospects continued to cloud my future. With no one to reach out to, I felt forlorn.
 
@@ -75,7 +75,7 @@ I left Korea relieved. This country made me feel out of place, and reminded me t
 
 ### Japan: Round Two
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360181/website_images/2024/05/Japan-Round-Two-150x150.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266481/Japan-Round-Two-150x150_zlmk6i.png)
 
 In August 2023, I returned to Japan for another three months. Perfect days ensued: in Tokyo with close friends, or in Tohoku, where I embarked on a festival marathon. Yet I couldn't stop missing the Korean guy.
 
@@ -115,7 +115,7 @@ My life was still going nowhere, in terms of career, love, and dreams. But I lea
 
 ### Taiwan
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360156/website_images/2024/05/Taiwan-745x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266488/Taiwan-745x1024_aqdav1.png)
 
 In January 2024, I continued to Taiwan for two and a half months. It felt like the middle ground between South Korea and Japan, except with a myriad of cultural shocks. I began volunteering at a hostel in Taipei for one month, and clubbed so hard from day one, that I fell sick.
 

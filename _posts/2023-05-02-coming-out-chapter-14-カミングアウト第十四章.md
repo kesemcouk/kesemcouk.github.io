@@ -30,15 +30,15 @@ Busier than ever. No time at all to write about my trip. This post was quicker, 
 
 Before I jump into it, here's some pictures of me from my 16th birthday party.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361727/website_images/2023/01/Chapter-14-2011.02.18-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266011/Chapter-14-2011.02.18-1-1024x768_xhu1y7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361898/website_images/2023/01/Chapter-14-2011.02.18-2-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266011/Chapter-14-2011.02.18-2-1024x768_z3nblb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361853/website_images/2023/01/Chapter-14-2011.02.18-5-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266012/Chapter-14-2011.02.18-5-768x1024_c5pdtd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361889/website_images/2023/01/Chapter-14-2011.02.18-4-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266012/Chapter-14-2011.02.18-4-768x1024_mtnquh.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361912/website_images/2023/01/Chapter-14-2011.02.18-3-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266011/Chapter-14-2011.02.18-3-1024x768_djscdt.jpg)
 
 Yes, the balloons all had dango eyes drawn on them.
 
@@ -60,7 +60,7 @@ I think I understand them now.
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361820/website_images/2023/01/Chapter-14-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266029/Chapter-14-picture-1-768x1024_ywvvws.jpg)
     
     <figcaption>
     
@@ -72,7 +72,7 @@ I think I understand them now.
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361804/website_images/2023/01/Chapter-14-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266030/Chapter-14-picture-2-768x1024_s1mzd2.jpg)
     
     <figcaption>
     
@@ -84,7 +84,7 @@ I think I understand them now.
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361877/website_images/2023/01/Chapter-14-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266030/Chapter-14-picture-3-768x1024_ukk2qn.jpg)
     
     <figcaption>
     

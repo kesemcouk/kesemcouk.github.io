@@ -62,7 +62,7 @@ He played a ton of music for me. Practically nonstop. Possessing zero knowledge 
 
 We talked for hours throughout the day, because we didn’t do much other than hang out. Lunch was fish teishoku – grilled mackerel, miso soup, rice with nattou – at a local restaurant. He was the one who had gotten me into liking nattou at the end of Round One.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361713/website_images/2023/09/img_2294-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266083/img_2294-1-1024x768_j2sia2.jpg)
 
 With his background in philosophy and his job at a music label (which he’d quit tomorrow in order to pursue freelance music production), he was particularly interested in quantifying what made music, and art as a whole, art. He sought to measure the financial value of an art work. So we got into a bit of a discussion about the nature of art, and whether it could be defined.
 
@@ -104,11 +104,11 @@ Dinner was… TEISHOKU! At a nice, local restaurant, whose prices left us a bit 
 
 At night, Saki and I made up our minds about Saturday and Fuji-san. I could see the mountain from the Chinese guy's eighth floor apartment, overlooking west Shinjuku.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361707/website_images/2023/09/img_2300-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266056/img_2300-1-768x1024_yrokcu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361472/website_images/2023/09/img_2306-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266056/img_2306-1-1024x768_lym22o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361649/website_images/2023/09/img_2302-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266056/img_2302-1-1024x768_rbtrgz.jpg)
 
 My second day in Tokyo was once again laid back, spent mostly on writing, eating teishoku, and hanging out with locals. But if that wasn’t what I wanted my life in Japan to look like, once I managed to find a way to settle here…
 
@@ -198,11 +198,11 @@ The only downside was the drink machine. While the selection was four times as m
 
 Regardless, this ne-café was a sight for sore eyes. Especially after the events of today.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361528/website_images/2023/09/img_2311-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266035/img_2311-1-768x1024_zanmzj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361500/website_images/2023/09/img_2310-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266057/img_2310-1-768x1024_anli4o.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361591/website_images/2023/09/img_2309-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266083/img_2309-1-768x1024_veezlx.jpg)
 
 I went to bed at 0:30, knowing full well I’d be tired before even beginning to hike tomorrow.
 
@@ -248,7 +248,7 @@ It didn’t compare. Disgusting pizza, popcorn shrimp, and steamed spinach (my f
 
 We continued west. Stopped at a convenience store to stock up. At night, the highway to Kawaguchiko was empty, even though it was the weekend. A downpour caught us and reduced the visibility to almost none.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361477/website_images/2023/09/img_2314-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266492/img_2314-1_yxziga.jpg)
 
 We reached Fuji-san at 20:00. A traffic officer told us to head back. The road to the all the 5th stations (where the trails started) was closed due to roadwork. Only taxis and buses could go through.
 
@@ -292,7 +292,7 @@ We changed to warm clothes and hit the road. The mountain was pitch-black. Apart
 
 The taxi driver told us a chilling story involving the nearby Aokigahara, Japan’s Suicide Forest.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361677/website_images/2023/09/img_2316-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266057/img_2316-768x1024_ldqg68.jpg)
 
 After thirty minutes, we arrived at Fuji Subashiri 5th station. Subaru station was closed. Bafflingly so. It was the most popular station, leading to the easiest and most populated Yoshida trail.
 
@@ -304,7 +304,7 @@ We started at 1:10 am. The trail was steep and stony, quite challenging to trave
 
 It was dead silent, and I was on the lookout for bears.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361553/website_images/2023/09/img_2320.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266514/img_2320_fbpxkc.jpg)
 
 We crossed a forest with the world’s scariest shrine and arrived at a clearing. The full moon shone bright. Lots of stars, none of which a camera could capture.
 
@@ -318,11 +318,11 @@ My bag was weighing down on me as it hadn’t since climbing Korea’s Seoraksan
 
 At 2,500 meters, one warm shirt from Uniqlo sufficed.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361572/website_images/2023/09/img_2321.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266506/img_2321_a9o7et.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361536/website_images/2023/09/img_2322.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266497/img_2322_wm5lpk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361474/website_images/2023/09/img_2325.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266421/img_2325_bbw9md.jpg)
 
 Around the 6th station, people started popping up. They’d probably begun hiking before us, or spent the night inside the shelter.
 
@@ -332,17 +332,17 @@ From here, we reached the original, slightly higher 7th station at 5:15, just in
 
 The weather was perfect. No rain, no wind, a few clouds. Excellent visibility. A monumental sunrise.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361511/website_images/2023/09/img_2327.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266433/img_2327_uzzb3i.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361250/website_images/2023/09/img_4528.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266490/img_4528_tyj8yt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361688/website_images/2023/09/img_4532.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266496/img_4532_ejzpyu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361576/website_images/2023/09/img_2335.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266495/img_2335_jorscn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361392/website_images/2023/09/img_2339.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266496/img_2339_bazprn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361363/website_images/2023/09/img_4538.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266494/img_4538_fcqbby.jpg)
 
 I found out the name of Saki’s late childhood friend; Omi’s older brother. Obviously not a piece of information to be communicated here. But it was connected to this mountain in a way as chilling as the taxi driver’s story.
 
@@ -356,23 +356,23 @@ At least half of the huge number of hikers on the mountain were Japanese – a f
 
 In comparison, some of the foreigners were carrying national flags.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361618/website_images/2023/09/img_2353.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266538/img_2353_pdmbex.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361662/website_images/2023/09/img_2354.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266575/img_2354_jaqoom.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361506/website_images/2023/09/4922956831799267905.ee9deaa3dc22f61b49b14f6752c2706a.23090306-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266006/4922956831799267905.ee9deaa3dc22f61b49b14f6752c2706a.23090306-1024x768_sejtzm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361326/website_images/2023/09/img_2361.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266544/img_2361_vft4ik.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361288/website_images/2023/09/img_2365-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266507/img_2365-1_lzbbsl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361351/website_images/2023/09/img_2362.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266520/img_2362_idsdza.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361625/website_images/2023/09/img_2366-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266084/img_2366-768x1024_ddufa7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361371/website_images/2023/09/img_2383-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266104/img_2383-768x1024_hnso1q.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361290/website_images/2023/09/img_2370.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266515/img_2370_wuwe2t.jpg)
 
 ### The Most Beautiful View I'd Seen
 
@@ -388,23 +388,23 @@ Standing on a piece of land so high above the clouds – reaching a place the hu
 
 Nature never ceased to astound me. Humanity never ceased to let me down.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361314/website_images/2023/09/img_2359.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266510/img_2359_ynm2tg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361692/website_images/2023/09/img_2369.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266556/img_2369_grug4u.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361349/website_images/2023/09/4922956831799267905.edc9dafe5dcccdc9fb6c646a9348fa8b.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266017/4922956831799267905.edc9dafe5dcccdc9fb6c646a9348fa8b.23090309-1024x768_qasglp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361418/website_images/2023/09/4922956831799267905.5230458aa9819a4baba4ea75e663a291.23090307-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266005/4922956831799267905.5230458aa9819a4baba4ea75e663a291.23090307-1024x768_cd0p3v.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361607/website_images/2023/09/4922956831799267905.74570c7045fd292cce868f980e4d07aa.23090309-1024x770.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266005/4922956831799267905.74570c7045fd292cce868f980e4d07aa.23090309-1024x770_bfg0lw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361774/website_images/2023/09/img_2356.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266529/img_2356_tii3ul.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361557/website_images/2023/09/4922956831799267905.27e3ed07e937410f2c83b4b1edce6ec6.23090307-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266004/4922956831799267905.27e3ed07e937410f2c83b4b1edce6ec6.23090307-1024x768_r1icvi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361362/website_images/2023/09/4922956831799267905.303469765f83b0bed0c6f8c7d9afc41a.23090307-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266005/4922956831799267905.303469765f83b0bed0c6f8c7d9afc41a.23090307-1024x768_gzgpq6.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361406/website_images/2023/09/4922956831799267905.e075ecb5cf9ea71fb7cf140db09d6e6a.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266006/4922956831799267905.e075ecb5cf9ea71fb7cf140db09d6e6a.23090309-1024x768_i8cxre.jpg)
 
 Fuji-san’s crater was large and barren. A few shrines were sprinkled throughout the top of the mountain.
 
@@ -414,17 +414,17 @@ A little over an hour later, with bellies full and a nippy wind making us shiver
 
 We were among the handful of souls who did that. 99% of the people we crossed treaded cautiously. My boots and pants got covered in red dust. Some entered my eyes, too. It was as fun as it was dangerous. And quicker, too.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361480/website_images/2023/09/img_2374-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266085/img_2374-1024x768_l9582t.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361637/website_images/2023/09/img_2373-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266084/img_2373-768x1024_ozblcm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361371/website_images/2023/09/4922956831799267905.e8dc541ce1b90c2dbcf0bede66c38dcf.23090307-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266005/4922956831799267905.e8dc541ce1b90c2dbcf0bede66c38dcf.23090307-1024x768_mb2bng.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361351/website_images/2023/09/4922956831799267905.d6838600f391cb05be9f05b4ed504c60.23090307-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266015/4922956831799267905.d6838600f391cb05be9f05b4ed504c60.23090307-768x1024_w9iht2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361709/website_images/2023/09/4922956831799267905.64b4e03826e732cc092c65751850543c.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266005/4922956831799267905.64b4e03826e732cc092c65751850543c.23090309-1024x768_haftuj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361302/website_images/2023/09/img_2372.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266540/img_2372_izvdhp.jpg)
 
 There was no mountain in Japan like Fuji. Not just in terms of height, and reverence, and shape. The amount of people on it. Their diversity. From all over the Earth.
 
@@ -434,23 +434,23 @@ Finally, at 13:30, we reached Fuji Subaru 5th station.
 
 Done.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361406/website_images/2023/09/4922956831799267905.e075ecb5cf9ea71fb7cf140db09d6e6a.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266006/4922956831799267905.e075ecb5cf9ea71fb7cf140db09d6e6a.23090309-1024x768_i8cxre.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361572/website_images/2023/09/4922956831799267905.9c566fc35759b456012d43d0716464ee.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266004/4922956831799267905.9c566fc35759b456012d43d0716464ee.23090309-1024x768_pw5prm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361464/website_images/2023/09/4922956831799267905.5f45a84125d81a9572fec6a01c84ef20.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266004/4922956831799267905.5f45a84125d81a9572fec6a01c84ef20.23090309-1024x768_jbenon.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361695/website_images/2023/09/img_2375-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266085/img_2375-768x1024_yprcka.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361515/website_images/2023/09/img_2386-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266084/img_2386-768x1024_qi1fjz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361422/website_images/2023/09/img_2389-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266084/img_2389-1024x768_qgobmv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361443/website_images/2023/09/img_2385-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266058/img_2385-768x1024_rxy0nb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361536/website_images/2023/09/4922956831799267905.142d7b34b9ad3a36644c0874466f9ca5.23090309-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266007/4922956831799267905.142d7b34b9ad3a36644c0874466f9ca5.23090309-1024x768_ufr461.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361645/website_images/2023/09/img_2392-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266085/img_2392-1024x768_osr90y.jpg)
 
 The station was insanely crowded and foggy. Practically inside a cloud. I collapsed at this point, my bag was killing me. It wasn’t hard to breathe up on the mountain; it wasn’t too exhausting to climb. I was simply tired from lack of sleep and the weight on my shoulders. Just like in Seoraksan.
 
@@ -482,7 +482,7 @@ Somehow, suicide had become a recurring topic while we were on the mountain.
 
 I crashed on my sleeping pod’s mattress and dozed off before 22:00. Today marked four months in my favorite piece of land on this mortal planet.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361419/website_images/2023/09/img_2394-576x1024.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266059/img_2394-576x1024_qa224j.png)
 
 **Things I missed about Japan:**
 

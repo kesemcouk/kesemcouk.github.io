@@ -113,11 +113,11 @@ At 17:00, he left to catch his train. I knew that for him, this was a meaningles
 
 Why, after so many dating disasters in Japan, Korea, and Israel, Taiwan was breaking the mould? I wasn't falling in love with every new person that came along – my mind didn't just forget and move on – but I was enjoying almost every outgoing. Something about the mentality here fit me.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359877/website_images/2024/03/IMG_9068-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266430/IMG_9068-768x1024_nszg3c.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359996/website_images/2024/03/IMG_9072-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266431/IMG_9072-768x1024_zspvhm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359981/website_images/2024/03/IMG_9075-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266431/IMG_9075-768x1024_xnslgc.jpg)
 
 I bought a kimchi scallion pancake as delectable as my afternoon. The rest of the day was spent staring at my laptop, unable to make any progress with my to-do list, let alone write. Chatting instead with the queer staff member in my hostel, we discussed dating in our countries.
 
@@ -235,9 +235,9 @@ After two hours together, he had to leave.
 
 If anything, I’d chain myself to this playground simply for such pampering.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359563/website_images/2024/03/IMG_9077-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266431/IMG_9077-768x1024_ge6tvr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359867/website_images/2024/03/IMG_9078-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266431/IMG_9078-768x1024_alnkib.jpg)
 
 ### Taipei Xia-Hai Temple of the City God
 
@@ -245,21 +245,21 @@ I spent my afternoon in Dihua street, my third time there, now empty after the N
 
 The alter presented two dozen small, black-incensed statues of bearded deities, including the Matchmaker, a wise old man, and one of the most famous marriage deities in Taiwan. I prayed to him using three candle sticks.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359645/website_images/2024/03/IMG_9080-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266432/IMG_9080-768x1024_gth40c.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359966/website_images/2024/03/IMG_9081-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266432/IMG_9081-768x1024_qnfbln.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/03/IMG_9082-768x1024.jpeg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359661/website_images/2024/03/IMG_9084-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266433/IMG_9084-768x1024_aghkw4.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359951/website_images/2024/03/IMG_9085-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266433/IMG_9085-768x1024_goolqh.jpg)
 
 After this, I walked back to Ximen through Zhonghua road, illuminated for the Lantern Festival. Installations included cities from Japan and Korea, such as Aomori apples and Jeju tangerines.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360040/website_images/2024/03/IMG_9086-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266433/IMG_9086-768x1024_ujw1ki.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359829/website_images/2024/03/IMG_9088-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266433/IMG_9088-768x1024_tclcpk.jpg)
 
 ### Successful Date #3
 
@@ -339,17 +339,17 @@ I woke at 7:00. For my last day off from the hostel, I took the bus to Yangmings
 
 Barren cherry blossom trees lined my walk up a road for fifteen minutes to the visitor center (no shoulders; taking another bus would’ve been better). I crossed the parking lot opposite the road and descended to Yangming park, where fully bloomed cherry blossoms provided a nice surprise. They were few, compared to Japan – but late February marked the local flower festival, with visitors and musical performances.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359870/website_images/2024/03/IMG_9106-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266434/IMG_9106-768x1024_fd0l62.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359790/website_images/2024/03/IMG_9110-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266434/IMG_9110-768x1024_vi3w91.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359873/website_images/2024/03/IMG_9111-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266434/IMG_9111-768x1024_pei955.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359899/website_images/2024/03/IMG_9112-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266434/IMG_9112-768x1024_i6pyqw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359700/website_images/2024/03/IMG_9113-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266435/IMG_9113-768x1024_hm1hzr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359688/website_images/2024/03/IMG_9119-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266435/IMG_9119-768x1024_ndnadz.jpg)
 
 ### Mt Qixing-shan
 
@@ -371,19 +371,19 @@ With no one to occupy me but my thoughts, it occurred to me how stupid I’d bee
 
 I forced myself not to scowl. Rinse and repeat.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359678/website_images/2024/03/IMG_9133-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266436/IMG_9133-768x1024_i5ctc7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359994/website_images/2024/03/IMG_9122-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266435/IMG_9122-768x1024_ixlkxe.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359681/website_images/2024/03/IMG_9124-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266435/IMG_9124-768x1024_tjw1yb.jpg)
 
 The main peak was so foggy, that the visibility was zero. Raindrops were shrouding my lenses; I barely registered the group of elder Taiwanese who had finished climbing the opposite trail. My fingers hurt for the first time since January 12.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360014/website_images/2024/03/IMG_9126-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266435/IMG_9126-768x1024_nwtkaj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359871/website_images/2024/03/IMG_9128-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266436/IMG_9128-768x1024_cwitsk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360009/website_images/2024/03/IMG_9131-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266436/IMG_9131-768x1024_sb8mw5.jpg)
 
 I moved to the east peak for the trail down. Like the main peak, it was more rocks than scenery. With the rain intensifying and my glasses a puddle, I slipped on the rocks, and hit my tailbone, left side of my back, and top of my head.
 
@@ -427,11 +427,11 @@ Yet it was full to the brim on Thursday at 14:00, with Taiwanese elders yelling 
 
 I hated hot springs in Taiwan. And I couldn’t linger, either. I scrapped the rest of my hiking plans and took the bus back to the city.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360001/website_images/2024/03/IMG_9135-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266436/IMG_9135-768x1024_fztizj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359968/website_images/2024/03/IMG_9136-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266436/IMG_9136-768x1024_t5tbgz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359877/website_images/2024/03/IMG_9138-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266437/IMG_9138-768x1024_ncz3zg.jpg)
 
 The driver raced down the winding road. The bus jumped up and down the mountain. In Japan, they always drove gingerly.
 

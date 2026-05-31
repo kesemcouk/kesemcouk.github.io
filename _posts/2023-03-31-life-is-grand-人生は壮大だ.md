@@ -16,7 +16,7 @@ In honour of my favourite scene from SpongeBob...
 
 A moment of silence.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360876/website_images/2023/03/58802734-x-rip-here-lies-sduidwards-hopes-and-dreams-2meirl4meirl-32665781.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266025/58802734-x-rip-here-lies-sduidwards-hopes-and-dreams-2meirl4meirl-32665781_hvwpge.png)
 
 ## 28 March 2023
 

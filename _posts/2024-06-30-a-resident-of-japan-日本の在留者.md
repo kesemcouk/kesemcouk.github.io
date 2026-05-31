@@ -27,17 +27,17 @@ Since then, my weeks in the world's most populated city – with the most opport
 
 Now that I’ll live in Tokyo in my own apartment, will I be able to build a more robust social circle? Will my dating life finally grow stable?
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360577/website_images/2024/07/img_0155-2-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266026/img_0155-2-768x1024_mh4qem.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/07/img_0156-2-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360580/website_images/2024/07/img_0164-2-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266026/img_0164-2-768x1024_wflibl.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2024/07/img_0163-2-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360578/website_images/2024/07/img_0169-2-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266026/img_0169-2-768x1024_ffu22v.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360581/website_images/2024/07/img_0175-2-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266027/img_0175-2-768x1024_gem96k.jpg)
 
 The next few weeks will be hectic. School every day, apartment hunting, job hunting, legal errands to complete my relocation, treasure hunting for second-hand furniture: writing should be the last activity in my head. So, naturally, I decided to overhaul this blog, and start a new chapter.
 

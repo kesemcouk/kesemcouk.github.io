@@ -91,7 +91,7 @@ I've been writing it ever since. Countless drafts. All rejected by agents and wo
 
 In senior year, my cohort didn’t have a graduation ceremony. It was a collective punishment for something stupid some girls did to the principal. I went with a few other students to the principal’s office fo_r weeks_ to appeal her decision. Now I couldn’t care less. The students organised our own prom, which was very memorable. The picture above is taken from that night – the only time in my life I wore a tie.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361931/website_images/2023/01/Epilogue.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266015/Epilogue_l1lrb4.jpg)
 
 On 1 June 2013, two or three weeks before high school was over, I started working at a bookshop. It’s always been on my bucket list, yet turned out to be little more than a capitalist playground.
 

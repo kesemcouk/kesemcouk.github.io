@@ -34,9 +34,9 @@ This was my favourite Beatles song in middle and high school. I wonder why. Pent
 
 I mean, this is what I did for fun on my DSi:
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361735/website_images/2023/01/Chapter-13-2009.06.30-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266011/Chapter-13-2009.06.30-1_xuftuq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361894/website_images/2023/01/Chapter-13-2009.06.30.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266011/Chapter-13-2009.06.30_pehwpv.jpg)
 
 One time, I went over to N's, and showed her a scene from episode 17 of the first season of Higurashi. The one with the fingernail torture device.
 

@@ -35,9 +35,9 @@ I took a limited express train with Jeong-Ho to Hualien after his shift. Every T
 
 With zero sightseeing in Hualien bar Taroko, we walked along a river from the station to the port for one hour. It was drizzling softly; barely anyone was out and about. The tall grass was lush, and the quiet inviting.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359744/website_images/2024/03/IMG_0608-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266062/IMG_0608-768x1024_im6j0d.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359911/website_images/2024/03/IMG_0609-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266039/IMG_0609-768x1024_jpghij.jpg)
 
 ### An Overly Sensitive Stroll
 
@@ -113,9 +113,9 @@ We entered the market just as it opened at 18:00. I dropped the subject, adamant
 
 Dinner was a pineapple and shrimp coffin toast (sweet and savory, the way it should’ve been done in Tainan); turkey rice; shrimp roll; and red tea. Then we walked for 35 minutes back to Hualien station.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359657/website_images/2024/03/IMG_0611-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266039/IMG_0611-768x1024_oqqps3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359636/website_images/2024/03/IMG_0612-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266062/IMG_0612-768x1024_lp2khe.jpg)
 
 I mulled over his suggestions while we crossed dim streets. Perhaps someday I would feel more open to them. Maybe even hit the gym. I asked him why he was so fond of it.
 
@@ -163,19 +163,19 @@ I woke at 6:00. Roosters’ calls were audible inside the room.
 
 The bus to Taroko Gorge zigzagged up a mountain. Light-gray rock formations, misty mountain peaks, and lush trees. Even on this cloudy day, the water looked magnificently turquoise. It was the most pristine and vivid body of water I’d seen, outshining Hokkaido's Shirogane Blue Pond.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359765/website_images/2024/03/IMG_0621-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266062/IMG_0621-768x1024_jwm30m.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359919/website_images/2024/03/IMG_0623-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266041/IMG_0623-768x1024_mj7pvj.jpg)
 
 I alighted at Swallow Grotto and crossed a long and thin suspension bridge over a ravine with a roaring stream, an omnipresent sound in Taroko. Zhuliu Old Trail was the hardest in the Gorge, and the only one requiring a permit.
 
 For a place known for its beautiful walks on flat roads, the trail wasn’t too challenging. I hiked alone through a humid forest with crickets, black butterflies, and songbirds. Dew clung to spiderwebs on branches, while the grass smelled wet.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359752/website_images/2024/03/IMG_0626-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266086/IMG_0626-768x1024_nkgsd3.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359736/website_images/2024/03/IMG_0635-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266087/IMG_0635-768x1024_kekw34.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359674/website_images/2024/03/IMG_0636-770x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266088/IMG_0636-770x1024_yd8r0h.jpg)
 
 In liue of any interesting distractions on the trail (just like in Yushan…), I brooded over delicacy and stoicism. Over the past year, I’d learned to shed my Israeli walls and soften. By doing that, had I crossed the interpersonal Rubicon?
 
@@ -183,23 +183,23 @@ After one boring hour, I reached the Cliff Outpost. It was a bare, narrow, cliff
 
 It was the adrenaline rush I’d grown to expect from my escapes to nature.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360015/website_images/2024/03/IMG_0649-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266087/IMG_0649-768x1024_xpbosu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359967/website_images/2024/03/IMG_0659-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266063/IMG_0659-768x1024_qwyb7z.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359604/website_images/2024/03/IMG_0662-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266041/IMG_0662-768x1024_pfa6yt.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359790/website_images/2024/03/IMG_0668-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266041/IMG_0668-768x1024_maow8z.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360003/website_images/2024/03/IMG_0674-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266064/IMG_0674-768x1024_mqqzdz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359979/website_images/2024/03/IMG_0677-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266041/IMG_0677-768x1024_zscqmw.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359653/website_images/2024/03/IMG_0686-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266105/IMG_0686-768x1024__v1769359653_o9xl6m.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359958/website_images/2024/03/IMG_0687-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266090/IMG_0687-768x1024_v66bcd.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359926/website_images/2024/03/IMG_0689-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266092/IMG_0689-768x1024_y5jot9.jpg)
 
 I returned to Swallow Grotto vigorous with content. Even on overcast weather, this trail was rewarding. Too many people were ascending it now, however.
 
@@ -215,23 +215,23 @@ Vulnerability, I realized, was better done in secret.
 
 The sun came out when Jeong-Ho arrived. It illuminated a canyon with marble-white cliff walls, grey and pale brown boulders, water gushing out of potholes, and a turquoise stream roaring at full speed. We marveled at this landscape while walking the Swallow Grotto, a short stretch of a flat road that was also the most beautiful and famous trail. Indeed, Taroko was the finest slice of nature in Taiwan, unrivalled by any other.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359628/website_images/2024/03/IMG_0692-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266021/IMG_0692-768x1024_y1tjsc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359667/website_images/2024/03/IMG_0695-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266091/IMG_0695-768x1024_fbmzlp.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359797/website_images/2024/03/IMG_0701-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266092/IMG_0701-768x1024_rgjllc.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359622/website_images/2024/03/IMG_0707-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266092/IMG_0707-1024x768_nlwixn.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360015/website_images/2024/03/IMG_0719-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266093/IMG_0719-768x1024_v2s7rb.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360002/website_images/2024/03/IMG_0724-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266093/IMG_0724-768x1024_xk6zcz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359685/website_images/2024/03/IMG_0726-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266066/IMG_0726-768x1024__v1769359685_lrricz.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359691/website_images/2024/03/IMG_0731-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266108/IMG_0731-768x1024_wkn4jr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359657/website_images/2024/03/IMG_0756-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266096/IMG_0756-768x1024_cs4adn.jpg)
 
 "People don't care about their appearance in the Philippines," he said as we passed a Korean group tour, explaining the differences between the two countries to me. "They wear whatever they want, even if it's unattractive."
 
@@ -249,7 +249,7 @@ I recalled how he'd described this constant pressure as brutal and suffocating.
 
 It was interesting to note that his hiking outfit consisted of a miniscule pouch fastened around his waist. No bag, no UV straps, no walking sticks, zero gear. The complete opposite of every Korean I'd witnessed hiking.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769359877/website_images/2024/03/IMG_0748-1-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266111/IMG_0748-1-1024x768_lviutn.jpg)
 
 The next trail on our list, the Tunnel of Nine Turns, turned out to be inaccessible by foot. Since it provided more of the same, Swallow Grotto had proven more than sufficient. There were many more trails one could venture into around the Gorge, such as an exciting suspension bridge, or the waterfall temple. But without a car or a scooter, it was too complicated. Plus, the weather turned gloomy again anyway.
 

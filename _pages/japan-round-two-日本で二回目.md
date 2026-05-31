@@ -8,7 +8,7 @@ category: japan-two
 series_type: travel-logs
 ---
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360172/website_images/2024/05/Japan-Round-Two.png)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266482/Japan-Round-Two_xlejkx.png)
 
 ### 47 posts (43 chapters, 4 poems)
 

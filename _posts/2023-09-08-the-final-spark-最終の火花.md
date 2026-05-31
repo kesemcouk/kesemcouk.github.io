@@ -42,23 +42,23 @@ The spicy pickled turnip lit my mouth on fire. So did the gochujang sauce of the
 
 At first it felt good, but by the end, I could barely chew.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361618/website_images/2023/09/img_2555.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266563/img_2555_ge7ltu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361271/website_images/2023/09/img_2548.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266548/img_2548_pkeukv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361505/website_images/2023/09/img_2545-3.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266515/img_2545-3_wgzbwi.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361649/website_images/2023/09/img_2542.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266537/img_2542_dykjkx.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361635/website_images/2023/09/img_2543.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266550/img_2543_bh2sdl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361621/website_images/2023/09/img_2541.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266534/img_2541_p8sce7.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361599/website_images/2023/09/img_2540.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266568/img_2540_dwp22k.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361717/website_images/2023/09/img_2550.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266502/img_2550_y9pjks.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361288/website_images/2023/09/img_2553-1-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266525/img_2553-1-1_jpfvny.jpg)
 
 I found the language school I’d almost attended before Japan had reopened its borders. It was right next to a church. Ironic; most Koreans were Christians.
 
@@ -104,9 +104,9 @@ I moped during the entire lunch. And consequently felt even worse, because I was
 
 It astounded me how every single time I thought a bad occurrence was the last straw – the Sendai incident from last week, for example, on the eve of my return to Tokyo – and then something else happened, and shattered me.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361352/website_images/2023/09/img_2558.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266553/img_2558_vgpcql.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361300/website_images/2023/09/img_2562.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266529/img_2562_pvo1o6.jpg)
 
 ### My First Earthquake in Japan
 
@@ -284,17 +284,17 @@ Everywhere I asked, meat filled the steamed buns. So I got a chocolate-filled, p
 
 At noon, the vacant town filled up like the buns themselves. Lines everywhere.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361325/website_images/2023/09/img_2567.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266562/img_2567_xpwmii.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361275/website_images/2023/09/img_2574.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266561/img_2574_pgtvta.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/09/img_2575.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361334/website_images/2023/09/img_2572.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266545/img_2572_goqxee.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361719/website_images/2023/09/img_2578.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266509/img_2578_eo0m93.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361762/website_images/2023/09/img_2579.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266542/img_2579_ylcqrc.jpg)
 
 ### Yamashita Park and the Red Brick Houses
 
@@ -304,15 +304,15 @@ The red brick warehouses (a relic from Yokohama Port being the first to open up 
 
 I passed the afternoon sitting down inside the warehouses and by a river, waiting for time to snail away. I needed to wait until 18:00 to meet my host’s friend.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361372/website_images/2023/09/img_2585-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266060/img_2585-768x1024_rup0o8.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361442/website_images/2023/09/img_2584-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266059/img_2584-768x1024_nav4mk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361607/website_images/2023/09/img_2583.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266491/img_2583_mtdjlq.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361388/website_images/2023/09/img_2590-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266085/img_2590-768x1024_jlacjr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361424/website_images/2023/09/img_2587-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266060/img_2587-1-768x1024_jjtsnq.jpg)
 
 With the public Wi-Fi NOT working for a single, stable minute, my boredom, and my longing to catch up with friends who were still interested in talking to me, I used my limited mobile data to call the Australian guy I’d met in Osaka and the Israeli girl I’d met in Busan. Knowing full well my three-month SIM card wouldn’t last three months at this rate.
 
@@ -342,11 +342,11 @@ The Austrian girl told me some surprising details about the one-year working hol
 
 After sunset, we watched the lit-up Minato Mirai at night, with the Ferris wheel and tall buildings. This was the second to last thing that the Miitaka guy had added to my list for Japan. Apart from a local specialty in Nikko, which I’d forgotten about during my visit there in late April, I’d done all.  
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361424/website_images/2023/09/img_2591-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266060/img_2591-768x1024_wbwkmr.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361534/website_images/2023/09/img_2592-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266060/img_2592-768x1024_gsjjm0.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361676/website_images/2023/09/img_2634-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266086/img_2634-1024x768_gfjyqg.jpg)
 
 I returned to my host’s at 22:00. We spent the rest of the evening chilling in his living room in front of the TV. GTA Twitch livestreams and Mission Impossible movies. I used this opportunity to make some progress with planning my upcoming Hokkaido trip.
 

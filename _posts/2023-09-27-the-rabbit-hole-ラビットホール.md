@@ -29,9 +29,9 @@ At 14:00, we walked the parade together. Like Tokyo – and unlike Seoul – the
 
 After one too short of an hour, our group finished walking. No sooner had we returned to Odori than it started drizzling for a short while. Good timing.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361519/website_images/2023/09/img_2798-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266065/img_2798-768x1024_rdzrcv.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361473/website_images/2023/09/img_2810-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266096/img_2810-768x1024_nrnrbe.jpg)
 
 We returned to the booths, whereupon the group of teachers from Sapporo who’d already known each other ditched us. Four of us remained: a 26-year-old South African girl teaching in Kutchan, a 39-year-old American woman teaching in Kitami, and a 27-year-old Australian guy teaching in Bihoro.
 
@@ -39,7 +39,7 @@ Even with the latter being just an ally, I revelled in our group’s formation, 
 
 I got a free consultation with colour stylist at one of the booths (basically, examining fabrics and being told summer-y, blue shades fitted me the most… I was not convinced). Free miso soup (I gave them my pork). Then we walked for half an hour to a parking lot, to let the dog rest inside the woman’s car.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361620/website_images/2023/09/img_2815-1024x770.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266095/img_2815-1024x770_klibjs.jpg)
 
 By the time this was over, and we walked back to Susukino, all of us grew tired. Legs weary, stomachs empty, we just wanted to find a restaurant and sit down. The woman was vegan, so we went to an Indian place.
 
@@ -85,11 +85,11 @@ I walked her to her hostel. She lived in a tiny town called Kutchan, which one n
 
 She let me keep the umbrella. I walked back to my hostel, rain splattering against my umbrella, cars splashing puddles, people drinking in crowded bars. Quiet alleys and neon signs.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361697/website_images/2023/09/img_2816-1024x768.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266066/img_2816-1024x768_szstza.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361351/website_images/2023/09/img_2819-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266066/img_2819-768x1024_iyxsng.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361285/website_images/2023/09/img_2821-1-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266066/img_2821-1-768x1024_pwfcan.jpg)
 
 In the end, Sapporo pride was a tame, modest affair, smaller than my previous two. No wild experiences of crazy, large, busy clubs, nor ups and downs of dancing and getting rejected, plucking up the courage to make moves, going through a process of confidence, desire, jealousy, self-consciousness, inferiority, release, inhibition, relief; being sandwiched by partygoers, surrounded by couples, by people more attractive than me, who never looked my way once – sweat dripping, music blaring, alcohol and a broken soul –
 
@@ -175,11 +175,11 @@ There was Fluffy Snowflakes by Uemura Shoen (1944), which I’d seen in Yamatana
 
 Finally, there were some ceramics by Kitaoji Rosanjin from the Adachi Museum of art. Pass.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361410/website_images/2023/09/img_2825-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266067/img_2825-768x1024_xajwkf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361509/website_images/2023/09/img_2826-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266097/img_2826-768x1024_ylzecl.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361331/website_images/2023/09/img_2828-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266069/img_2828-768x1024_c8vcoh.jpg)
 
 When the museum closed at 17:00, I took the streetcar back to Susukino (five consecutive days in that cluster of blocks!) to eat something before I passed out. I reached the number one ramen shop in Sapporo, recommended to me by the Morioka woman, when it opened at 17:30.
 
@@ -217,9 +217,9 @@ My pizza was half potato and corn (potato on dough? weird topping, but when in R
 
 Nothing like plastic-y pizza late on a movie night. Everything about this moment – even the movie – was better than going out.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361418/website_images/2023/09/img_2830-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266068/img_2830-768x1024_dddaxf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361454/website_images/2023/09/img_2831-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266069/img_2831-768x1024_xax9dp.jpg)
 
 **Today's highlights**: McDonald's fries for breakfast with Cowboy; experiencing the safety of Japan; soup curry, potato mochi, and cheese tarts for lunch; cheap pizza and a night in with Cowboy.
 
@@ -259,11 +259,11 @@ At 19:30, our time at the karaoke was up. (Who knew how long we’d stay there i
 
 Delicious! So much fun, to sit at a self-cooking restaurant like this. I ate a squid and green onion okonomiyaki, and then we shared a spicy cod roe and cheese monja.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361495/website_images/2023/09/img_2833-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266069/img_2833-768x1024_n5vtmo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361473/website_images/2023/09/img_2842-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266069/img_2842-768x1024_cv5dhg.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361525/website_images/2023/09/img_2843-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266097/img_2843-768x1024_hkiyjh.jpg)
 
 We left a little after 22:00. The Sapporo native continued home from Odori station, while Cowboy walked me all the way to the bus terminal, and waited with me until departure.
 

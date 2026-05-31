@@ -25,7 +25,7 @@ Chapter 7 ended on March 20th. The entries from the next five weeks don’t ment
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361912/website_images/2023/01/Chapter-8-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266022/Chapter-8-picture-1-768x1024_yaxzh7.jpg)
     
     <figcaption>
     
@@ -37,7 +37,7 @@ Chapter 7 ended on March 20th. The entries from the next five weeks don’t ment
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361757/website_images/2023/01/Chapter-8-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266022/Chapter-8-picture-2-768x1024_pwekyb.jpg)
     
     <figcaption>
     
@@ -68,7 +68,7 @@ Very weird. I want a psychologist >< maybe I’ll consult H. Anyway there’s no
 
 One of the first pictures I took of myself with my new DSi was this, on April 27th:
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361766/website_images/2023/01/2009.04.27.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266003/2009.04.27_hltstd.jpg)
 
 Out of all my recurring dreams, the “I’m home locking everything up because someone is trying to break in and kill me” one has been the most frequent. I’ve been dreaming it ever since. It may have stopped in the last few months – I’m not sure – I barely remember my dreams, perhaps I should start a dream journal. There are only a few I vividly remember. For example, the dream from chapter 2 ended with Glalie, a Pokémon that literally gave me nightmares.
 

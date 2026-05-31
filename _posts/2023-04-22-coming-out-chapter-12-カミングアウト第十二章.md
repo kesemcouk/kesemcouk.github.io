@@ -18,7 +18,7 @@ In chapter 12, I...
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361825/website_images/2023/01/Chapter-12-picture-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266010/Chapter-12-picture-1-768x1024_afsg9u.jpg)
     
     <figcaption>
     
@@ -30,7 +30,7 @@ In chapter 12, I...
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361880/website_images/2023/01/Chapter-12-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266010/Chapter-12-picture-2-768x1024_woudrf.jpg)
     
     <figcaption>
     

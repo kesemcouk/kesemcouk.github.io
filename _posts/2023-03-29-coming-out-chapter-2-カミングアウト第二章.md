@@ -39,7 +39,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
 
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361805/website_images/2023/01/Chapter-2-picture-1-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266008/Chapter-2-picture-1-1-768x1024_oaq3ty.jpg)
     
     <figcaption>
     
@@ -51,7 +51,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361878/website_images/2023/01/Chapter-2-picture-2-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266008/Chapter-2-picture-2-768x1024_rry3ny.jpg)
     
     <figcaption>
     
@@ -63,7 +63,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361798/website_images/2023/01/Chapter-2-picture-3-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266008/Chapter-2-picture-3-768x1024_geqjag.jpg)
     
     <figcaption>
     
@@ -75,7 +75,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361807/website_images/2023/01/Chapter-2-picture-4-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266008/Chapter-2-picture-4-768x1024_gjt2lr.jpg)
     
     <figcaption>
     
@@ -87,7 +87,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361749/website_images/2023/01/Chapter-2-picture-5-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266009/Chapter-2-picture-5-768x1024_miwirb.jpg)
     
     <figcaption>
     
@@ -99,7 +99,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361917/website_images/2023/01/Chapter-2-picture-6-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266009/Chapter-2-picture-6-768x1024_heemgz.jpg)
     
     <figcaption>
     
@@ -111,7 +111,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361786/website_images/2023/01/Chapter-2-picture-7-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266009/Chapter-2-picture-7-768x1024_tqlgkb.jpg)
     
     <figcaption>
     
@@ -123,7 +123,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361919/website_images/2023/01/Chapter-2-picture-8-1-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266009/Chapter-2-picture-8-1-768x1024_rybdjo.jpg)
     
     <figcaption>
     
@@ -135,7 +135,7 @@ Exactly 5 years later, I sat in the same building as an undergrad, and treated p
     
 - <figure>
     
-    ![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361826/website_images/2023/01/Chapter-2-picture-9-768x1024.jpg)
+    ![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266010/Chapter-2-picture-9-768x1024_klo44b.jpg)
     
     <figcaption>
     

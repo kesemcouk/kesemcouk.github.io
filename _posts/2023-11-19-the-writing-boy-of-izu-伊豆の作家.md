@@ -153,15 +153,15 @@ Kawazu Seven Waterfalls was, as the name suggested, a well-marked, well-maintain
 
 Each waterfall also featured a small statue of the seven gods of fortune.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360986/website_images/2023/11/img_4771-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266580/img_4771-1_yio3xb.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4772.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361146/website_images/2023/11/img_4774-150x150.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266055/img_4774-150x150_zwqyaq.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4775-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361182/website_images/2023/11/img_4778-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266565/img_4778-1_xgxtr6.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4779-1.jpg)
 
@@ -207,7 +207,7 @@ Interesting how Shokei-daru waterfall was the only thing flowing between them.
 
 It was one of the most moving sculptures I’d seen, amplified by the choice of scenery.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361224/website_images/2023/11/img_4784-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266571/img_4784-1_cg8id7.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4787-1.jpg)
 
@@ -233,7 +233,7 @@ Then, Deai-daru falls, followed by O-daru (“large waterfall”). 30 meters hig
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4791-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361034/website_images/2023/11/img_4792-150x150.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266055/img_4792-150x150_eyxr5v.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4796-1.jpg)
 
@@ -247,13 +247,13 @@ The sign read under construction, but no construction work was taking place.
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4799-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361177/website_images/2023/11/img_4800-150x150.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266055/img_4800-150x150_bhnicz.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4801-1.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360948/website_images/2023/11/img_4804-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266510/img_4804-1_djuy0p.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361089/website_images/2023/11/img_4803-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266553/img_4803-1_tzzpmm.jpg)
 
 ### Ito
 
@@ -297,11 +297,11 @@ One night, he overheard them discussing him.
 
 At 20:00, slumber overtook me.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361222/website_images/2023/11/img_4810-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266079/img_4810-768x1024_oergkx.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4813-768x1024.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361244/website_images/2023/11/img_4811-768x1024.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266079/img_4811-768x1024_ja5vq5.jpg)
 
 **Today's highlights:** a volcanic series of waterfalls; the Dancing Girl of Izu sculpture; my first abandoned ryokan; the special train with a sea view; the rotenburo.
 
@@ -404,7 +404,7 @@ I explored Jogasaki faster than I would’ve liked to, because of the tight bus 
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4956.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361004/website_images/2023/11/img_4965-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266577/img_4965-1_ycbe19.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_4971.jpg)
 
@@ -488,11 +488,11 @@ The only attraction on my list for Atami was MOA museum of art. The market area 
 
 A series of colourful, dramatic escalators took me up to the museum. A rotunda hall with the world's largest kaleidoscopic installation art by Yoda Mitsuru and Yoda Yuriko, projected over the entire ceiling and accompanied by an extremely moving piano composition by Nakamura Yuriko.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361011/website_images/2023/11/img_4987-1-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266154/img_4987-1-scaled_llph5q.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361020/website_images/2023/11/img_4988-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266124/img_4988-scaled_itt7wo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361251/website_images/2023/11/img_4989-1-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266125/img_4989-1-scaled_nkisat.jpg)
 
 There was a Noh theatre; a reconstruction of the golden tea room used in various castles in Japan; and galleries with gold nihonga, plus elaborate bowls and jars. Overall, a lot of gold-dyed artworks that didn’t thrill me much.
 
@@ -500,19 +500,19 @@ I was more interested in Landscape with Temples by Kaiho Yusho (early 17th centu
 
 The placement of breathtaking white marble pottery by Miwa Kyusetsu XIII from 2014-2022 alongside the thought-provoking Time Travel series of panels by Murodo Kazumi from 2019 (dirty red and black halves growing monotonely clean) was a bold curating choice.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360953/website_images/2023/11/img_4996-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266398/img_4996-scaled_etlgat.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361163/website_images/2023/11/img_4997-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266404/img_4997-scaled_iztirm.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361001/website_images/2023/11/img_4998-1-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266153/img_4998-1-scaled_rxredu.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360963/website_images/2023/11/img_4999-1-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266153/img_4999-1-scaled_valiu2.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361215/website_images/2023/11/img_5002-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266153/img_5002-scaled_v5odwo.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361233/website_images/2023/11/img_5003.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266539/img_5003_syckxk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360949/website_images/2023/11/img_5004-scaled.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266122/img_5004-scaled_ihkvxt.jpg)
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5005-1.jpg)
 
@@ -530,15 +530,15 @@ It was in this place that my 3-day trip in the Izu Peninsula came to a close. I 
 
 ![](https://kesem.co.uk/wp-content/uploads/2023/11/img_5012.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361247/website_images/2023/11/img_5014.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266513/img_5014_jz15ea.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361233/website_images/2023/11/img_5016.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266514/img_5016_aooejj.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360985/website_images/2023/11/img_5022.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266536/img_5022_ajwjpf.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361248/website_images/2023/11/img_5028.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266512/img_5028_y9m0nk.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769361174/website_images/2023/11/img_5029-1.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266511/img_5029-1_xoqcqf.jpg)
 
 ### Kabukicho
 
@@ -570,9 +570,9 @@ With both our evenings free, I took him at 21:00 to the tiny horror bar in Kabuk
 
 We wandered around Kabukicho, half lively, less loud than on weekends. Trees were sparkling with night illuminations. Based on his stories and behaviour, I didn’t want to test the waters with Alejandro. I even told him so. We valued each other as a friend.
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360947/website_images/2023/11/img_5031.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266544/img_5031_ksioye.jpg)
 
-![](https://res.cloudinary.com/det9qfsir/image/upload/v1769360984/website_images/2023/11/img_5033.jpg)
+![](https://res.cloudinary.com/dveeyccwl/image/upload/v1780266543/img_5033_x8ge5k.jpg)
 
 > I was not aware that darkness had settled on the ocean, but now lights glimmered on the shores of Ajiro and Atami. My skin was chilled and my stomach empty. The boy took out some sushi wrapped in bamboo leaves. I ate his food, forgetting it belonged to someone else. Then I nestled inside his school coat. I felt a lovely hollow sensation, as if I could accept any sort of kindness and it would be only right. It was utterly natural that I should accompany the old woman to Ueno Station early the next morning and buy her a ticket to Mito. Everything seemed to melt together into one.
 > 
