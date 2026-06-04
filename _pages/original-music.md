@@ -5,7 +5,7 @@ subtitle: 作曲
 permalink: /music/
 date: 2026-06-04
 ---
-After writing songs for the drawer for years, I started teaching myself music production in 2025.
+After writing songs for years, I started teaching myself music production in 2025.
 
 ```
 [![A Cowboy in the Land of Snow](https://www.youtube.com/watch?v=ma0Hx-qZw8A)](https://www.youtube.com/watch?v=ma0Hx-qZw8A)
