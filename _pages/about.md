@@ -2,8 +2,8 @@
 layout: page
 title: Biography
 subtitle: 伝記
-permalink: /about/
-category: about-me
+permalink: /bio/
+category: bio
 date: 2026-06-04
 ---
 I was born as one of a set of triplets in Israel, where I was the odd one out.
@@ -68,11 +68,7 @@ At the same time, I experienced love again, and again, and again. A misfit robot
 
 Relocating to Tokyo was the next step for me. I attended a Japanese language school for a year. Nowadays, I navigate corporate slavery, while branching into music and comedy. 
 
-
-
-### Japanese speech contest
-
-[https://www.youtube.com/watch?app=desktop&v=Ky_qMOi6Gbg&fbclid=PAZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMjU2MjgxMDQwNTU4AAGnhE0DQbs5KjS6PxJUcnHc_a9YYJHF6YSVnl7p2BMCP94muzaz65IxeG1CI6w_aem_1exj6H9Boy_51_npzmFhhg](https://www.youtube.com/watch?app=desktop&v=Ky_qMOi6Gbg&fbclid=PAZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMjU2MjgxMDQwNTU4AAGnhE0DQbs5KjS6PxJUcnHc_a9YYJHF6YSVnl7p2BMCP94muzaz65IxeG1CI6w_aem_1exj6H9Boy_51_npzmFhhg)
+**[Japanese speech contest](https://www.youtube.com/watch?app=desktop&v=Ky_qMOi6Gbg&fbclid=PAZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMjU2MjgxMDQwNTU4AAGnhE0DQbs5KjS6PxJUcnHc_a9YYJHF6YSVnl7p2BMCP94muzaz65IxeG1CI6w_aem_1exj6H9Boy_51_npzmFhhg)**
 
 
 
