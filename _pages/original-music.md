@@ -2,7 +2,7 @@
 layout: page
 title: Music
 subtitle: 作曲
-permalink: /original-music/
+permalink: /music/
 date: 2026-06-04
 ---
 After writing songs for the drawer for years, I started teaching myself music production in 2025.
