@@ -5,4 +5,3 @@ slideshow_images:
 ---
 ## kesem
 
-music | writing | comedy
