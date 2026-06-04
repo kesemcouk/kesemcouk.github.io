@@ -36,7 +36,7 @@ Coming out in high school to my close friends didn’t help. I focused on homewo
 
 
 
-## **University**
+## University
 
 After ignoring everyone’s career advice, I graduated summa cum laude in a multidisciplinary degree course in Humanities and Arts from Tel-Aviv University. 
 
@@ -48,7 +48,7 @@ I was about to start a PhD and stay in the UK for good, when COVID and money thw
 
 
 
-**Big Trip**
+## Big Trip
 
 I returned to Israel with my dream crushed. Nothing I tried bore fruit. I was stuck in an environment that suppressed my identity, and didn’t leave room for growth.
 
@@ -64,13 +64,13 @@ At the same time, I experienced love again, and again, and again. A misfit robot
 
 
 
-**Present**
+## Present
 
 Relocating to Tokyo was the next step for me. I attended a Japanese language school for a year. Nowadays, I navigate corporate slavery, while branching into music and comedy. 
 
 
 
-Japanese speech contest
+### Japanese speech contest
 
 [https://www.youtube.com/watch?app=desktop&v=Ky_qMOi6Gbg&fbclid=PAZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMjU2MjgxMDQwNTU4AAGnhE0DQbs5KjS6PxJUcnHc_a9YYJHF6YSVnl7p2BMCP94muzaz65IxeG1CI6w_aem_1exj6H9Boy_51_npzmFhhg](https://www.youtube.com/watch?app=desktop&v=Ky_qMOi6Gbg&fbclid=PAZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMjU2MjgxMDQwNTU4AAGnhE0DQbs5KjS6PxJUcnHc_a9YYJHF6YSVnl7p2BMCP94muzaz65IxeG1CI6w_aem_1exj6H9Boy_51_npzmFhhg)
 
