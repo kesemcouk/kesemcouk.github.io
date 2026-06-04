@@ -10,7 +10,7 @@ I was born as one of a set of triplets in Israel, where I was the odd one out.
 
 
 
-**Childhood**
+## Childhood
 
 As a child, I dabbled in various arts. 
 
@@ -28,7 +28,7 @@ But I never fit in, nor knew how to. 
 
 
 
-**Adolescence**
+## Adolescence
 
 Everything changed in middle school, where I was bullied and alone. Constant peer pressure and homophobia led to depression. I quit my hobbies, studied Japanese, and started to hide my thoughts and emotions. 
 
@@ -36,7 +36,7 @@ Coming out in high school to my close friends didn’t help. I focused on homewo
 
 
 
-**University**
+## **University**
 
 After ignoring everyone’s career advice, I graduated summa cum laude in a multidisciplinary degree course in Humanities and Arts from Tel-Aviv University. 
 
