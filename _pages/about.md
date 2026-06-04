@@ -2,7 +2,7 @@
 layout: page
 title: Biography
 subtitle: 伝記
-permalink: /biography/
+permalink: /about/
 category: about-me
 date: 2026-06-04
 ---
